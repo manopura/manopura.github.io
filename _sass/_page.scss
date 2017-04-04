@@ -1,0 +1,59 @@
+html {
+	height: 100%;
+}
+
+body {
+	min-height: 100%;
+	
+	font: {
+		family: $standard-font-stack;
+		weight: 400;
+	}
+	
+	background-color: $color-menu;
+}
+
+#main {
+	background-color: $color-background;
+}
+
+nav {
+	background: $color-menu;
+
+    img {
+        height: 3em;
+    }
+    
+	.menu {
+        .active {
+            background-color: $color-primary;
+            
+            a:hover {
+                color: #fefefe;
+            }
+        }
+    
+        a {
+            padding: 1em 1em;
+            color: $color-primary;
+
+            &:hover {
+                color: $color-menu-hover;
+            }
+        }
+	}
+	
+}
+
+footer {
+	color: $color-text;
+	padding: 1em 0em;
+	
+	a {
+		color: $color-text;
+		
+		&:hover {
+			color: $color-menu-hover;
+		} 
+	}
+}

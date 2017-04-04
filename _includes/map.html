@@ -1,0 +1,22 @@
+<section id="manopura-map" class="hero"></section>
+<script>
+	function initMap() {
+		var manopura = {
+			lat : 51.001752,
+			lng : 3.877750
+		};
+		var map = new google.maps.Map(document.getElementById("manopura-map"), {
+			zoom : 15,
+			center : manopura,
+			streetViewControl : false
+		});
+		var marker = new google.maps.Marker({
+			position : manopura,
+			map : map
+		});
+	}
+</script>
+<script async="async" defer="defer"
+	src="https://maps.googleapis.com/maps/api/js?callback=initMap">
+	
+</script>

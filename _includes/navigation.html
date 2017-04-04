@@ -1,0 +1,22 @@
+<nav> <!-- Need extra level to allow navigation bar background color to span entire screen width -->
+	<div class="row">
+		<div class="column small-12 medium-3">
+            <img src="../images/logo.jpg" />
+		</div>
+		<div class="column small-12 medium-9">
+			<ul class="menu align-right">
+				<li {% if page.menu == "welkom" %} class="active" {% endif %}>
+                    <a {% unless page.menu == "welkom" %} href="index.html" {% endunless %}>Welkom</a></li>
+				<li {% if page.menu == "shiatsu" %} class="active" {% endif %}>
+                    <a {% unless page.menu == "shiatsu" %} href="shiatsu.html" {% endunless %}>Shiatsu</a></li>
+				<li {% if page.menu == "reiki" %} class="active" {% endif %}>
+                    <a {% unless page.menu == "reiki" %} href="reiki.html" {% endunless %}>Reiki</a></li>
+				<li {% if page.menu == "fengshui" %} class="active" {% endif %}>
+                    <a {% unless page.menu == "fengshui" %} href="fengshui.html" {% endunless %}>Feng Shui</a></li>
+				<li {% if page.menu == "praktisch" %} class="active" {% endif %}>
+                    <a {% unless page.menu == "praktisch" %} href="praktisch.html" {% endunless %}>Praktisch</a></li>
+				<li {% if page.menu == "contact" %} class="active" {% endif %}>
+                    <a {% unless page.menu == "contact" %} href="contact.html" {% endunless %}>Contact</a></li>
+		</div>
+	</div>
+</nav>

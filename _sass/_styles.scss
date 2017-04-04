@@ -1,0 +1,57 @@
+h1 {
+    font-size: 2em;
+    position: relative;
+	text-align: center;
+    padding-bottom: 0.5em;
+    margin-bottom: 0.5em;
+    
+    &:before {
+      content : "";
+      position: absolute;
+      height  : 0.1em;
+      width   : 10%;
+      left: 45%;
+      bottom: 0;
+      border-bottom: 0.05em solid black;
+    }
+}
+
+div:before {
+}
+
+h2 {
+    font-size: 1.5em;
+}
+
+h3 {
+    font-size: 1.35em;
+}
+
+h4 {
+    font-size: 1.2em;
+}
+
+h5 {
+    font-size: 1.1em;
+}
+
+.copyright {
+	font-size: x-small;
+	
+	&:before {
+		content: "\00A9 "; // Copyright character
+	}
+	
+	&:after {
+		content: " Alle rechten voorbehouden.";
+	}
+}
+
+.button {
+	font-family: $standard-font-stack;
+}
+
+#main img {
+    display: block;
+    margin: 1em auto 1em auto;
+}

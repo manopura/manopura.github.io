@@ -1,0 +1,12 @@
+/*
+ * Settings configuring the foundation framework
+ */
+$foundation-palette: (
+  primary: $color-primary,
+  secondary: $color-background,
+  success: green,
+  warning: yellow,
+  alert: red,
+) !default;
+
+$button-radius: 4px;
