@@ -1,10 +1,14 @@
 <nav> <!-- Need extra level to allow navigation bar background color to span entire screen width -->
-	<div class="row">
-		<div class="column small-12 medium-3">
-            <img src="../images/logo.jpg" />
+    <div class="title-bar" data-responsive-toggle="navigatie" data-hide-for="medium">
+        <button class="menu-icon" type="button" data-toggle="navigatie"></button>
+        <div class="title-bar-title">Navigatie</div>
+    </div>
+	<div class="row top-bar" id="navigatie">
+        <div class="top-bar-left show-for-medium">
+            <img src="images/logo.jpg" />
 		</div>
-		<div class="column small-12 medium-9">
-			<ul class="menu align-right">
+        <div class="top-bar-right">
+			<ul class="menu vertical medium-horizontal">
 				<li {% if page.menu == "welkom" %} class="active" {% endif %}>
                     <a {% unless page.menu == "welkom" %} href="index.html" {% endunless %}>Welkom</a></li>
 				<li {% if page.menu == "shiatsu" %} class="active" {% endif %}>

@@ -24,6 +24,11 @@ nav {
         height: 3em;
     }
     
+    .top-bar, .top-bar ul {
+        background-color: inherit;
+        padding: 0;
+    }
+    
 	.menu {
         .active {
             background-color: $color-primary;
