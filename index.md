@@ -19,4 +19,4 @@ Kort gezegd: alles wat je tegenhoudt om jezelf te (kunnen) zijn zoals stress, zi
 Manopura is lid van de Belgische Shiatsu Federatie.
 
 ![fotohouder](images/fotohouder.jpg)
-![belhische shiatsu federatie](images/bsf.png)
+[![belgische shiatsu federatie](images/bsf.png)](http://www.shiatsu.be)
