@@ -20,3 +20,4 @@ Manopura is lid van de Belgische Shiatsu Federatie.
 
 ![fotohouder](images/fotohouder.jpg)
 [![belgische shiatsu federatie](images/bsf.png)](http://www.shiatsu.be)
+[![vindeentherapeut](images/vindeentherapeut.png)](https://www.vindeentherapeut.be/therapeut/marian-d-wetteren.html)
