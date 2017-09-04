@@ -1,23 +1,27 @@
 <nav> <!-- Need extra level to allow navigation bar background color to span entire screen width -->
     <div class="title-bar" data-responsive-toggle="navigatie" data-hide-for="medium">
-        <button class="menu-icon" type="button" data-toggle="navigatie"></button>
         <div class="title-bar-title">Navigatie</div>
+        <button class="menu-icon" type="button" data-toggle="navigatie"></button>
     </div>
 	<div class="row top-bar" id="navigatie">
         <div class="top-bar-left show-for-medium">
             <img src="images/logo.jpg" />
 		</div>
-        <div class="top-bar-right">
-			<ul class="menu vertical medium-horizontal">
+        <div class="top-bar-right" data-toggler="hide">
+			<ul class="menu vertical medium-horizontal" data-responsive-menu="accordion medium-dropdown">
 				<li {% if page.menu == "welkom" %} class="active" {% endif %}>
                     <a {% unless page.menu == "welkom" %} href="index.html" {% endunless %}>Welkom</a></li>
-				<li {% if page.menu == "shiatsu" %} class="active" {% endif %}>
-                    <a {% unless page.menu == "shiatsu" %} href="shiatsu.html" {% endunless %}>Shiatsu</a></li>
-				<li {% if page.menu == "reiki" %} class="active" {% endif %}>
-                    <a {% unless page.menu == "reiki" %} href="reiki.html" {% endunless %}>Reiki</a></li>
-				<li {% if page.menu == "fengshui" %} class="active" {% endif %}>
-                    <a {% unless page.menu == "fengshui" %} href="fengshui.html" {% endunless %}>Feng Shui</a></li>
-				<li {% if page.menu == "praktisch" %} class="active" {% endif %}>
+                <li {% if page.menu == "behandelingen" %} class="active" {% endif %}>
+                	<a><span>Behandelingen</span></a>
+                	<ul class="vertical menu">
+		 				<li {% if page.menu == "shiatsu" %} class="active" {% endif %}>
+		                    <a {% unless page.menu == "shiatsu" %} href="shiatsu.html" {% endunless %}>Shiatsu</a></li>
+						<li {% if page.menu == "reiki" %} class="active" {% endif %}>
+		                    <a {% unless page.menu == "reiki" %} href="reiki.html" {% endunless %}>Reiki</a></li>
+						<li {% if page.menu == "fengshui" %} class="active" {% endif %}>
+		                    <a {% unless page.menu == "fengshui" %} href="fengshui.html" {% endunless %}>Feng Shui</a></li>
+	                </ul></li>
+ 				<li {% if page.menu == "praktisch" %} class="active" {% endif %}>
                     <a {% unless page.menu == "praktisch" %} href="praktisch.html" {% endunless %}>Praktisch</a></li>
 				<li {% if page.menu == "contact" %} class="active" {% endif %}>
                     <a {% unless page.menu == "contact" %} href="contact.html" {% endunless %}>Contact</a></li>
