@@ -2,7 +2,7 @@
 layout: markdown
 menu: stresscoaching
 ---
-# Stress coaching
+# Stress Coaching
 
 Stress lijkt een mode-woord geworden te zijn, maar wat betekent het juist? 
 
