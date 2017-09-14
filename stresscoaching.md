@@ -10,6 +10,7 @@ Stress lijkt een mode-woord geworden te zijn, maar wat betekent het juist?
 
 Tijdens het intake gesprek wordt aandachtig geluisterd en op zoek gegaan naar waar de stressfactoren precies liggen. 
 Zowel via coaching (vraaggesprekken, begeleiding, ...) alsook via Shiatsu (relaxatie oefeningen, stoelmassages, ...) wordt het stress probleem aangepakt. 
+
 Manopura is van mening dat alleen gesprekken niet volstaan, maar dat ook op het lichaam moet gewerkt worden via massage en behandeling, om zo terug balans te krijgen in zowel lichaam als geest. Ons hoofd en brein worden al genoeg belast, de rest van het lichaam wordt al te vaak vergeten en heeft in deze jachtige tijden meer dan nood aan aandacht.
 
 Manopura biedt stress coaching aan zowel op individueel vlak als op professioneel vlak aan bedrijven.
