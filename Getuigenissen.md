@@ -4,7 +4,11 @@ menu: Getuigenissen
 ---
 # Getuigenissen
 
+Af en toe mag een mens eens dromen, van mooie dingen, maar voor mij de voorbije jaren vooral van een pijnvrij bestaan. Rugpijn beheerste mijn doen en laten, vooral het laten... Ik hoorde je spreken met passie en gedrevenheid over Manopura en Shiatsu. Het trok mijn aandacht, ik moest maar eens een afspraak maken. Het eerste gesprek ging meer over mijn mentale weerbaarheid na het duikongeval en zijn gevolgen. Met veel aandacht noteerde je alles. Waarna je de behandeling begon. Na anderhalf uur reed ik terug naar huis. Pas in de auto bemerkte ik dat de rugpijn, die 4 jaar mijn leven had beheerst, was verdwenen! Nu inmiddels reeds 4 maand geleden. Ongelooflijk dat de gewone geneeskunde me niet kon helpen, me aanzette tot het aanvaarden en ermee leren leven, met pijnstillers en beperkingen. Ik heb nu mijn leven terug, met uitdagingen en doelen! Marian, Manopura, met je handen verricht je alvast bij mij wonderen!
 
+*Gery*
+
+---
 
 Marian, Ik wil je al eens bedanken. Sinds ik geweest ben is de pijn zo goed als weg en heb ik al de ganse week super goed geslapen en moet ik zelf niet opstaan. Ik voel me precies herboren. Tot de volgende afspraak!
 
