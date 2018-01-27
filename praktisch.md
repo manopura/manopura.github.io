@@ -6,10 +6,10 @@ menu: praktisch
 
 ### Voor Particulieren:
  
-De eerste sessie duurt circa 2 uur. Een intake gesprek met vragenlijst wordt afgenomen om je klachten en voorgeschiedenis in kaart te brengen. Enkel deze eerste sessie kost 70 euro.
+De eerste sessie duurt circa 2 uur. Een intake gesprek met vragenlijst wordt afgenomen om je klachten en voorgeschiedenis in kaart te brengen. Enkel deze eerste sessie kost 80 euro.
 
 De vervolg-sessies duren tussen 1uur en 1,5 uur.
-Elke vervolgsessie, ongeacht de duur, kost 50 euro per sessie. Sommige mutualiteiten komen hierin gedeeltelijk tussen. Gelieve u daarover te informeren.
+Elke vervolgsessie, ongeacht de duur, kost 60 euro per sessie. Sommige mutualiteiten komen hierin gedeeltelijk tussen. Gelieve u daarover te informeren.
 
 Wanneer de afspraak de dag zelf, of tot 24u voordien wordt afgebeld, wordt de sessie wel aangerekend.
 
