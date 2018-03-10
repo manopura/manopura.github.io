@@ -8,13 +8,13 @@ menu: welkom
 
 Mano pura betekent letterlijk in het Italiaans **"zuivere hand"**. Beide woorden hebben hun diepere betekenis:
  
-De **hand** (mano) omdat de Shiatsu en Reiki therapeut hoofdzakelijk zijn handen gebruikt. De hand heeft ook een grote symbolische waarde: een helpende hand, een beschermende hand, een verzorgende hand.
+De **hand** (mano) omdat de Shiatsu en Reiki behandelaar hoofdzakelijk zijn handen gebruikt. De hand heeft ook een grote symbolische waarde: een helpende hand, een beschermende hand, een verzorgende hand.
  
-Onder de definitie van **zuiver** (pura), verstaan we o.a. puur, helder, schoon, niet vermengd met iets wat er niet bij of in hoort... Het spreekt voor zich dat de therapeut zelf zuiver en in balans hoort te zijn alvorens hij een behandeling adequaat kan uitvoeren. Daarenboven wordt tijdens een behandeling getracht alle onzuiverheden uit het systeem weg te werken.
+Onder de definitie van **zuiver** (pura), verstaan we o.a. puur, helder, schoon, niet vermengd met iets wat er niet bij of in hoort... Het spreekt voor zich dat de behandelaar zelf zuiver en in balans hoort te zijn alvorens hij een behandeling adequaat kan uitvoeren. Daarenboven wordt tijdens een behandeling getracht alle onzuiverheden uit het systeem weg te werken.
 
 De term manopura doet wellicht ook denken aan manipura, die dan weer verwijst naar de derde chakra of energiecentrum, de zonnevlecht. Deze heeft te maken met je kracht, de drijfveer om vorm te geven aan je leven.
 
-Kort gezegd: alles wat je tegenhoudt om jezelf te (kunnen) zijn zoals stress, ziekte, ongemak, blokkades,... tracht ik aan te pakken via alternatieve behandelingswijzen om zo ervoor te zorgen dat de zon terug in je leven kan schijnen en je weer jezelf wordt in de zuiverste zin.
+Kort gezegd: alles wat je tegenhoudt om jezelf te (kunnen) zijn zoals stress, ziekte, ongemak, blokkades,... tracht ik aan te pakken via complementaire behandelingswijzen om zo ervoor te zorgen dat de zon terug in je leven kan schijnen en je weer jezelf wordt in de zuiverste zin.
 ​
 Manopura is lid van de Belgische Shiatsu Federatie.
 
