@@ -4,6 +4,14 @@ menu: Getuigenissen
 ---
 # Getuigenissen
 
+Na een diagnose van burnout, kwam ik via een vriendin bij Marian terecht. Na het uitgebreide intakegesprek, de degelijke uitleg en een eerste kennismaking met de behandeling, ging ik naar huis met het geruststellende gevoel dat er wel effectief een oplossing was voor de klachten die ik had en de pijn die ik voelde.
+In de daaropvolgende sessies mocht ik ervaren dat je bij Marian geen nummer bent. Elke klacht neemt ze ernstig en is bespreekbaar, ze luistert en elke behandeling verloopt zeer respectvol. Ze geeft passende oefeningen die je thuis kan doen en vele tips, met daarbij telkens de vrijheid daaruit de dingen te kiezen die jij voor jezelf haalbaar acht.
+Dankuwel Marian om mij te leren naar mijn lichaam te luisteren en mij te begeleiden bij mijn herstel. Ik kan het iedereen aanbevelen!
+
+*Ann*
+
+---
+
 Af en toe mag een mens eens dromen, van mooie dingen, maar voor mij de voorbije jaren vooral van een pijnvrij bestaan. Rugpijn beheerste mijn doen en laten, vooral het laten... Ik hoorde je spreken met passie en gedrevenheid over Manopura en Shiatsu. Het trok mijn aandacht, ik moest maar eens een afspraak maken. Het eerste gesprek ging meer over mijn mentale weerbaarheid na het duikongeval en zijn gevolgen. Met veel aandacht noteerde je alles. Waarna je de behandeling begon. Na anderhalf uur reed ik terug naar huis. Pas in de auto bemerkte ik dat de rugpijn, die 4 jaar mijn leven had beheerst, was verdwenen! Nu inmiddels reeds 4 maand geleden. Ongelooflijk dat de gewone geneeskunde me niet kon helpen, me aanzette tot het aanvaarden en ermee leren leven, met pijnstillers en beperkingen. Ik heb nu mijn leven terug, met uitdagingen en doelen! Marian, Manopura, met je handen verricht je alvast bij mij wonderen!
 
 *Gery*
