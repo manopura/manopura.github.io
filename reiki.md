@@ -11,6 +11,9 @@ Reiki wordt toegepast daar waar energiestromen in het lichaam geblokkeerd raken 
 
 Ik pas Reiki voornamelijk toe op mensen die Shiatsu als te ingrijpend of onaangenaam ervaren.
 
-Er worden ook Open Reiki momenten georganizeerd. Daar kan iedereen die al een Reiki graad heeft naartoe komen; er wordt geoefend in kleine groepjes en de kennis en ervaringen worden gedeeld en verdiept. Check de Facebook pagina van Manopura voor het laatste nieuws. Bij interesse, stuur ons een mail.
+Er worden ook Open Reiki momenten georganizeerd. Daar kan iedereen die al een Reiki graad heeft naartoe komen; er wordt geoefend in kleine groepjes en de kennis en ervaringen worden gedeeld en verdiept. Check de Facebook pagina van Manopura voor het laatste nieuws. 
+Bij interesse, stuur ons een mail.
+
+
 
 ![reiki](images/reiki.png)
