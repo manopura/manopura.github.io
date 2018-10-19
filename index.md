@@ -7,9 +7,9 @@ menu: welkom
 
 
 # **!!!NIEUW!!!**   
-**Start2Meditate** 
+# **Start2Meditate** 
 
-Leren mediteren en hoe het kan helpen in de oplossing van je stress perikelen.
+# Leren mediteren en hoe het kan helpen in de oplossing van je stress perikelen.
 
 Vanaf 7 november 2018
 
