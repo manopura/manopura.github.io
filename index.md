@@ -6,8 +6,8 @@ menu: welkom
 
 
 
-# **!!!NIEUW!!!**   
-# **Start2Meditate** 
+# **!!!NIEUW!!!**   # **Start2Meditate** 
+
 
 Leren mediteren en hoe het kan helpen in de oplossing van je stress perikelen.
 
