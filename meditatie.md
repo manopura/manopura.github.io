@@ -4,9 +4,9 @@ menu:
 ---
 # Meditatie
 
-**!!! NIEUW!!!**
+**!!! NIEUW !!!**
 
-Er wordt ook mogelijkheid geboden in kleine groepjes te leren mediteren. 
+Er wordt mogelijkheid geboden in kleine groepjes te leren mediteren. 
 Mensen die graag kennis maken met wat mediteren precies is, en willen oefenen onder begeleiding, zijn van harte welkom.
 We hebben een Start2Meditate programma! We starten op woensdagavond 7 november om 20u.
 
