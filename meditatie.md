@@ -37,7 +37,7 @@ wekelijkse oefening zelfde dag zelfde uur (2 weken onderbreking tijdens kerstvak
 Wekelijks, start woensdag 7 november 20u in de praktijkruimte van Manopura
 Bijdrage: 10 € per sessie, contant te betalen de avond zelf; 
 Mogelijkheid om in te tekenen voor een 10 weken programma (95€ -> 5€ korting!) 
-Wie meditatie kussens, poef, matje heeft, mag die meebrengen. Er is zowiezo wel een poef en een matje voorzien
+Wie meditatie kussens, poef, matje heeft, mag die meebrengen. Er is zowiezo wel een poef en een matje voorzien.
 Dikke kousen meebrengen, eventueel dekentje
 
 **Registreren noodzakelijk**: via de Facebook pagina van Manopura https://www.facebook.com/pg/manopura/events/?ref=page_internal
