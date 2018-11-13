@@ -5,18 +5,6 @@ menu: welkom
 ![logo](images/logo.jpg)
 
 
-
-# **!!!NIEUW!!!**    **Start2Meditate** 
-
-
-Leren mediteren en hoe het kan helpen in de oplossing van je stress perikelen.
-
-Vanaf 7 november 2018
-
-Kijk voor meer info in de rubriek Aanbod/ Meditatie 
-
-
-
 # Waar staat Manopura voor?
 
 Mano pura betekent letterlijk in het Italiaans **"zuivere hand"**. Beide woorden hebben hun diepere betekenis:
