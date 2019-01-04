@@ -6,9 +6,15 @@ menu: praktisch
 
 ### Voor Particulieren:
  
-De eerste sessie duurt circa 1,5u tot maximaal 2 uur. Een intake gesprek met vragenlijst wordt afgenomen om je klachten en voorgeschiedenis in kaart te brengen. Enkel deze eerste sessie kost 90 euro.
+De eerste sessie voor **Shiatsu/Stress Coaching/ Reiki** duurt circa 1,5u tot maximaal 2 uur. Een intake gesprek met vragenlijst wordt afgenomen om je klachten en voorgeschiedenis in kaart te brengen. Enkel deze eerste sessie kost 90 euro.
 
-De vervolg-sessies duren 1 uur, en kosten 60 euro per sessie. Sommige mutualiteiten komen hierin gedeeltelijk tussen. Gelieve u daarover te informeren.
+De vervolg-sessies duren 1 uur, en kosten 60 euro per sessie. 
+
+Voor **Voetreflexologie** duurt een sessie sowieso 1,5uur en kost 90 euro.
+
+De wekelijkse samenkomst in groepjes om te **mediteren** kost 10 euro per sessie. De sessies gaan pas door vanaf ten minste 6 deelnemers.
+
+Sommige mutualiteiten komen gedeeltelijk tussen in de kosten. Gelieve u daarover te informeren.
 
 Wanneer de afspraak de dag zelf, of tot 24u voordien wordt afgebeld, wordt de sessie wel aangerekend. Met dank voor het begrip!
 
