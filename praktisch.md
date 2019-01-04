@@ -6,12 +6,11 @@ menu: praktisch
 
 ### Voor Particulieren:
  
-De eerste sessie duurt circa 2 uur. Een intake gesprek met vragenlijst wordt afgenomen om je klachten en voorgeschiedenis in kaart te brengen. Enkel deze eerste sessie kost 85 euro.
+De eerste sessie duurt circa 1,5u tot maximaal 2 uur. Een intake gesprek met vragenlijst wordt afgenomen om je klachten en voorgeschiedenis in kaart te brengen. Enkel deze eerste sessie kost 90 euro.
 
-De vervolg-sessies duren tussen 1uur en 1,5 uur.
-Elke vervolgsessie, ongeacht de duur, kost 60 euro per sessie. Sommige mutualiteiten komen hierin gedeeltelijk tussen. Gelieve u daarover te informeren.
+De vervolg-sessies duren 1 uur, en kosten 60 euro per sessie. Sommige mutualiteiten komen hierin gedeeltelijk tussen. Gelieve u daarover te informeren.
 
-Wanneer de afspraak de dag zelf, of tot 24u voordien wordt afgebeld, wordt de sessie wel aangerekend.
+Wanneer de afspraak de dag zelf, of tot 24u voordien wordt afgebeld, wordt de sessie wel aangerekend. Met dank voor het begrip!
 
 De behandeling gebeurt in gemakkelijk zittende kledij, van zo natuurlijk mogelijk materiaal, dat soepel meegeeft met de verschillende stretch bewegingen. Liever dus een loszittende linnen broek dan een strakke jeans. Dames dragen beter geen sieraden, nylonkousen of rok.
 
