@@ -13,6 +13,8 @@ Shiatsu kan helpen bij tal van klachten. Tegenwoordig zijn stress gerelateerde k
 Door druk te geven op de juiste  spanningspunten in het lichaam lost de stagnatie op en treedt automatisch het zelf-regulariserend systeem van het lichaam in werking en wordt het uitgenodigd een nieuw, beter evenwicht te zoeken. Een Shiatsu behandeling werkt ontspannend en vitaliserend.
 Naast Shiatsu zijn evenwichtige voeding, correcte ademhaling, lichaamsbeweging en positief denken de pijlers van een gezonde geest in een gezond lichaam. Graag geef ik je hierover ook verder advies.
 
-**Voetreflexologie** is deel van de Shiatsu opleiding. Mensen die graag van een volledige voetmassage genieten, kunnen daarvoor ook bij mij terecht!
+**Kostprijs**: lees meer onder de rubriek "Praktisch".
+
+**Voetreflexologie** is deel van de Shiatsu opleiding. Mensen die graag van een volledige voetmassage genieten, kunnen daarvoor ook bij mij terecht! Lees meer onder "Aanbod/ Voetreflexologie".
 
 ![drukpunten](images/drukpunten.png)
