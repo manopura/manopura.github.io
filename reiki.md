@@ -10,6 +10,7 @@ De Japanner Mikao Usui ontwikkelde dit systeem oorspronkelijk als een weg naar g
 Reiki wordt toegepast daar waar energiestromen in het lichaam geblokkeerd raken door bij voorbeeld nog niet verwerkte negatieve ervaringen uit het verleden, met lichamelijke en geestelijke problemen als gevolg.
 
 Ik pas Reiki voornamelijk toe op mensen die Shiatsu als te ingrijpend of onaangenaam ervaren.
+Je kan ook uiteraard heel bewust voor een Reiki sessie kiezen. 
 
 Er worden ook Open Reiki momenten georganizeerd. Daar kan iedereen die al een Reiki graad heeft naartoe komen; er wordt geoefend in kleine groepjes en de kennis en ervaringen worden gedeeld en verdiept. Check de Facebook pagina van Manopura voor het laatste nieuws. 
 Bij interesse, stuur ons een mail.
