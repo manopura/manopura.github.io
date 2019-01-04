@@ -17,4 +17,4 @@ Contra-indicaties:
 * Bij acute ontstekingen
 * Bij zwangerschappen met risicofactoren
 
-Een voetreflexbehandeling werkt zeer ontspannend en duurt 1,5u. Kostprijs: 85 euro
+Een voetreflexbehandeling werkt zeer ontspannend en duurt 1,5u. Kostprijs: 90 euro
