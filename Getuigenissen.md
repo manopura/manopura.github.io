@@ -18,6 +18,13 @@ Af en toe mag een mens eens dromen, van mooie dingen, maar voor mij de voorbije 
 
 ---
 
+Ik was gecrasht op het werk en had een burn-out!  Dat op zich alleen al was voor mij heel confronterend. Bij het intake gesprek was Marian een luisterend oor en had ze veel geduld en begrip voor mijn verhaal.  Daarna heeft ze met haar druktechniek de spanningsvelden in mijn lichaam behandeld. En toen ze bij een volgende sessie op mijn nek en schouders werkte, was het precies of het juk van mijn schouders werd gehaald. Ik zou Marian zeker aan iedereen warm aanbevelen die hier voor openstaat. 
+Dus Marian een dikke merci !!!
+
+*Sofie*
+
+---
+
 Marian, Ik wil je al eens bedanken. Sinds ik geweest ben is de pijn zo goed als weg en heb ik al de ganse week super goed geslapen en moet ik zelf niet opstaan. Ik voel me precies herboren. Tot de volgende afspraak!
 
 *Bettina*
