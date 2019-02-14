@@ -4,11 +4,10 @@ menu:
 ---
 # Meditatie
 
-**!!! NIEUW !!!**
 
 Er wordt mogelijkheid geboden in kleine groepjes te leren mediteren. 
 Mensen die graag kennis maken met wat mediteren precies is, en willen oefenen onder begeleiding, zijn van harte welkom.
-We hebben een Start2Meditate programma! We zijn gestart op 7 november 2018 met de eerste groep enthousiastelingen!
+We hebben een Start2Meditate programma!
 
 
 **Waarom?**
@@ -31,10 +30,10 @@ Voor al wie vroeger reeds gemediteerd heeft, en de draad terug wil oppakken.
 een inleiding met duiding en uitleg telkens over een ander facet van mediteren
 de meditatie zelf die begeleid wordt, stap voor stap
 nabespreking, bij een heerlijk vers kopje thee
-wekelijkse oefening zelfde dag zelfde uur (2 weken onderbreking tijdens kerstvakantie).
+wekelijkse oefening zelfde dag zelfde uur.
 
 **Praktisch**
-Wekelijks, start woensdag 7 november 20u in de praktijkruimte van Manopura
+Wekelijks, op woensdagavond om 20u in de praktijkruimte van Manopura
 Bijdrage: 10 € per sessie, contant te betalen de avond zelf; 
 Mogelijkheid om in te tekenen voor een 10 weken programma (95€ -> 5€ korting!) 
 Wie meditatie kussens, poef, matje heeft, mag die meebrengen. Er is zowiezo wel een poef en een matje voorzien.
