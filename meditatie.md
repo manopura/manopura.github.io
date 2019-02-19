@@ -26,18 +26,18 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 
 
 **Wat houdt het in?**
-1 uurtje in de week samen komen, in een groepje van maximaal 6 personen
-een inleiding met duiding en uitleg telkens over een ander facet van mediteren
-de meditatie zelf die begeleid wordt, stap voor stap
-nabespreking, bij een heerlijk vers kopje thee
-wekelijkse oefening zelfde dag zelfde uur.
+* 1 uurtje in de week samen komen, in een groepje van maximaal 6 personen
+* een inleiding met duiding en uitleg telkens over een ander facet van mediteren
+* de meditatie zelf die begeleid wordt, stap voor stap
+* nabespreking, bij een heerlijk vers kopje thee
+* wekelijkse oefening zelfde dag zelfde uur.
 
 **Praktisch**
-Wekelijks, op woensdagavond om 20u in de praktijkruimte van Manopura
-Bijdrage: 10 € per sessie, contant te betalen de avond zelf; 
-Mogelijkheid om in te tekenen voor een 10 weken programma (95€ -> 5€ korting!) 
-Wie meditatie kussens, poef, matje heeft, mag die meebrengen. Er is zowiezo wel een poef en een matje voorzien.
-Dikke kousen of pantoffels meebrengen, eventueel dekentje
+* Wekelijks, op woensdagavond om 20u in de praktijkruimte van Manopura
+* Bijdrage: 10 € per sessie, contant te betalen de avond zelf; 
+* Mogelijkheid om in te tekenen voor een 10 weken programma (95€ -> 5€ korting!) 
+* Wie meditatie kussens, poef, matje heeft, mag die meebrengen. Er is zowiezo wel een poef en een matje voorzien.
+
 
 **Registreren noodzakelijk**: via de Facebook pagina van Manopura https://www.facebook.com/pg/manopura/events/?ref=page_internal
 
