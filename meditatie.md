@@ -11,7 +11,7 @@ We hebben een Start2Meditate programma!
 
 
 **Waarom?**
-Tijdens de behandelingen in mijn praktijk zie ik dagelijks meer en meer mensen worstelen met stress, wegens uiteenlopende redenen. Iedereen lijkt op zoek te zijn naar de juiste manier om te ontspannen, die voor hem/haar werkt . Wèrkelijk ontspannen, rust ervaren, het hoofd leegmaken. Maar men weet niet hoe. Sport? Uitgaan? Hobbies? … 
+Tijdens de behandelingen in mijn praktijk zie ik meer en meer mensen worstelen met stress, wegens uiteenlopende redenen. Iedereen lijkt op zoek te zijn naar de juiste manier om te ontspannen, die voor hem/haar werkt . Wèrkelijk ontspannen, rust ervaren, het hoofd leegmaken. Maar men weet niet hoe. Sport? Uitgaan? Hobbies? … 
 Op zich zijn deze waardevol, maar het lichaam zelf komt niet (genoeg) tot rust, het blijft steeds actief. 
 Hoe maak je je hoofd leeg? Hoe ga je om met steeds terugkerende zorgen en spanning? 
 
