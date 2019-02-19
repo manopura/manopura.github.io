@@ -19,10 +19,10 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 
 
 **Voor wie?**
-Voor al wie niet weet wat mediteren precies inhoudt, en ermee kennis wil maken
-Voor al wie reeds van mediteren gehoord heeft, maar niet precies weet hoe er zelf mee te starten
-Voor al wie reeds meditatie ervaring heeft, en graag in een kleine groep extra oefening en begeleiding krijgt
-Voor al wie vroeger reeds gemediteerd heeft, en de draad terug wil oppakken.
+* Voor al wie niet weet wat mediteren precies inhoudt, en ermee kennis wil maken
+* Voor al wie reeds van mediteren gehoord heeft, maar niet precies weet hoe er zelf mee te starten
+* Voor al wie reeds meditatie ervaring heeft, en graag in een kleine groep extra oefening en begeleiding krijgt
+* Voor al wie vroeger reeds gemediteerd heeft, en de draad terug wil oppakken.
 
 
 **Wat houdt het in?**
