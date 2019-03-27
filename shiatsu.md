@@ -18,4 +18,8 @@ Naast Shiatsu zijn evenwichtige voeding, correcte ademhaling, lichaamsbeweging e
 **Voetreflexologie** is deel van de Shiatsu opleiding. Mensen die graag van een volledige voetmassage genieten, kunnen daarvoor ook bij mij terecht! Lees meer onder "Aanbod/ Voetreflexologie".
 
 ![drukpunten](images/drukpunten.png)
+![drukpunten](images/buik_web.png)
+![drukpunten](images/stoel_web.png)
+![drukpunten](images/rug_web.png)
+![drukpunten](images/voet_web.png)
 
