@@ -44,6 +44,6 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 
 of stuur ons een mailtje marian@manopura.be
 
-![drukpunten](images/meditatie_web.png)
+![meditatie](images/meditatie_web.png)
 
 
