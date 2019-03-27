@@ -7,6 +7,8 @@ menu: voetreflexologie
 Bepaalde zones op de voet reflecteren delen van de rest van het lichaam. 
 
 ![voetreflex](images/voetreflex.png)
+![voetreflex](images/voet_web.png)
+
 
 Wanneer zich in de voet afzettingen voordoen (kalk, lymfevocht, urinezuurkristallen, ...), dan is het interessant na te gaan in welke zones zich dat precies voordoet en welk het corresponderende belaste orgaan is.
 
