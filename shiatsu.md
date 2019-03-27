@@ -25,5 +25,5 @@ Naast Shiatsu zijn evenwichtige voeding, correcte ademhaling, lichaamsbeweging e
 
 ![drukpunten](images/rug_web.png)
 
-![drukpunten](images/voet_web.png)
+
 
