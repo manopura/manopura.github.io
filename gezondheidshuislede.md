@@ -19,3 +19,5 @@ georganiseerd: vrijdag 24 mei vanaf 19u ben je welkom om een kijkje te komen nem
 
 Wie langskomt, zijn email adres achterlaat in het daarvoor bestemde doosje, en Manopura liked op Facebook, maakt kans om dit klein fraai boeddha beeldje te winnen (5,5 cm hoog)!
 
+![gezondheidshuislede](images/boedhha2win.jpeg)
+
