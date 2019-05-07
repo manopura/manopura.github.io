@@ -4,7 +4,7 @@ menu: reiki
 ---
 # GezondheidshuisLede
 
-![gezondheidshuislede](images/final logo gezondheidshuis.png)
+![gezondheidshuislede](images/finallogogezondheidshuis.png)
 
 Vanaf **3 juni** kan je mij ook vinden in Lede, in het [**Gezondheidshuis**](https://gezondheidshuislede.be), Rammelstraat nr 10.
 
