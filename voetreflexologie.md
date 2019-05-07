@@ -24,5 +24,7 @@ Contra-indicaties:
 * Bij zwangerschappen met risicofactoren
 
 Een voetreflexbehandeling werkt zeer ontspannend en je kan kiezen hoeveel tijd pure relax je jezelf wil gunnen:
+
+
 1 uur: 60 euro
 1,5 uur: 90 euro
