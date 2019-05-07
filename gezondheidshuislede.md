@@ -10,7 +10,7 @@ menu: reiki
 
 
 
-Vanaf **3 juni** kan je mij ook vinden in Lede, in het [**Gezondheidshuis**](https://gezondheidshuislede.be), Rammelstraat nr 10.
+Vanaf **3 juni** kan je mij ook vinden in Lede, in het [**_Gezondheidshuis_**](https://gezondheidshuislede.be), Rammelstraat nr 10.
 
 Voor het ogenblik alleen op **woensdagnamiddagen van 13u30 tot 17u30**.  
 
