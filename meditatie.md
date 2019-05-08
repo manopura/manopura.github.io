@@ -33,7 +33,7 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 * wekelijkse oefening zelfde dag zelfde uur.
 
 **Praktisch**
-* Wekelijks, op woensdagavond om 20u in de praktijkruimte van Manopura
+* Wekelijks, op woensdag om 16u in het GezondheidshuisLede (zie info onder Aanbod); om 20u in de praktijkruimte van Manopura in Wetteren
 * Bijdrage: 10 € per sessie, contant te betalen de avond zelf; 
 * Mogelijkheid om in te tekenen voor een 10 weken programma (95€ -> 5€ korting!) 
 * Wie meditatie kussens, poef, matje heeft, mag die meebrengen. Er is zowiezo wel een poef en een matje voorzien.
