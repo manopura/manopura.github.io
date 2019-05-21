@@ -42,6 +42,7 @@ Meditatie:
 Gelieve voor de meditatie wel uw aanwezigheid te bevestigen.
 
 
+### Praktisch  
 Sommige mutualiteiten komen gedeeltelijk tussen in de kosten. Gelieve u daarover te informeren.
 
 Wanneer de afspraak de dag zelf, of tot 24u voordien wordt afgebeld, wordt de sessie wel aangerekend. Met dank voor het begrip!
