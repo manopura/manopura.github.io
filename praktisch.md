@@ -45,19 +45,20 @@ Gelieve voor de meditatie wel uw aanwezigheid te bevestigen.
 ### Praktisch  
 
 
-Voorkeur gaat naar electronisch betalen via de BanContact app op de smartphone.
++ Voorkeur gaat naar electronisch betalen via de BanContact app op de smartphone.  
 Cash betalen gaat uiteraard ook.
 
-Sommige mutualiteiten komen gedeeltelijk tussen in de kosten. Gelieve u daarover te informeren.
++ Sommige mutualiteiten komen gedeeltelijk tussen in de kosten.   
+Gelieve u daarover te informeren.
 
-Wanneer de afspraak de dag zelf, of tot 24u voordien wordt afgebeld, wordt de sessie wel aangerekend. Met dank voor het begrip!
++ Wanneer de afspraak de dag zelf, of tot 24u voordien wordt afgebeld, wordt de sessie wel aangerekend. Met dank voor het begrip!
 
 
-De behandeling gebeurt in gemakkelijk zittende kledij, van zo natuurlijk mogelijk materiaal, dat soepel meegeeft met de verschillende stretch bewegingen. Liever dus een loszittende linnen broek dan een strakke jeans. Dames dragen beter geen sieraden, nylonkousen of rok.
++ De behandeling gebeurt in gemakkelijk zittende kledij, van zo natuurlijk mogelijk materiaal, dat soepel meegeeft met de verschillende stretch bewegingen. Liever dus een loszittende linnen broek dan een strakke jeans. Dames dragen beter geen sieraden, nylonkousen of rok.
 
-Er is een aparte omkleedruimte voorzien.
++ Er is een aparte omkleedruimte voorzien.
 
-Hou er rekening mee dat de behandelruimte op de bovenverdieping is, dus er dienen trappen genomen te worden.
++ Hou er rekening mee dat de behandelruimte op de bovenverdieping is, dus er dienen trappen genomen te worden.
 
 ![ontvangruimte](images/ontvangruimte.jpg)
 
