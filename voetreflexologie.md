@@ -23,9 +23,4 @@ Contra-indicaties:
 * Bij acute ontstekingen
 * Bij zwangerschappen met risicofactoren
 
-Een voetreflexbehandeling werkt zeer ontspannend en je kan kiezen hoeveel tijd pure relax je jezelf wil gunnen:
-
-
-1 uur: 60 euro
-
-1,5 uur: 90 euro
+Een voetreflexbehandeling werkt zeer ontspannend en je kan kiezen hoeveel tijd pure relax je jezelf wil gunnen. Voor details en prijzen, kijk onder rubriek "Praktisch"
