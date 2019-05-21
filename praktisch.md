@@ -5,20 +5,39 @@ menu: praktisch
 # Praktisch
 
 ### Voor Particulieren:
+### Prijslijst Wetteren:
  
-Elke eerste sessie, of het nu voor **Shiatsu, Stress Coaching, Voetreflex of Reiki** is, duurt circa 1,5 uur. Een intake gesprek met vragenlijst wordt afgenomen om uw klachten en voorgeschiedenis in kaart te brengen. Enkel deze eerste sessie kost 90 euro.
+Eerste sessie Shiatsu/ Stress Coaching met intake gesprek: 90 min - 90 euro
+Vervolgsessies: 
+60 min - 60 euro
+75 min - 75 euro
 
-De vervolg-sessies duren 1 uur, en kosten 60 euro per sessie. Indien u graag voor de "extended version" gaat, dan kan u ook 1,5u boeken aan 90 euro.
+Voetreflexologie: 
+45 min - 50 euro
+60 min - 60 euro
+75 min - 75 euro
 
-De wekelijkse samenkomst in groepjes om te **mediteren** kost 10 euro per sessie. De sessies gaan pas door vanaf ten minste 4 deelnemers. Gelieve uw aanwezigheid te bevestigen. 
+Reiki: 
+60 min - 60 euro
+90 min - 90 euro
 
+Meditatie: 
+60 min - 10 euro per persoon
+10 beurten kaart: 95 euro
+Gelieve wel uw aanwezigheid te bevestigen. 
 
+### Prijslijst Lede
+
+Shiatsu stoel massage: 30 min - 30 euro
+Voetreflex massage: 45 min - 50 euro
+Meditatie: 60 min - 10 euro per persoon
+10 beurten kaart meditatie: 95 euro
+Gelieve voor de meditatie wel uw aanwezigheid te bevestigen.
 
 
 Sommige mutualiteiten komen gedeeltelijk tussen in de kosten. Gelieve u daarover te informeren.
 
 Wanneer de afspraak de dag zelf, of tot 24u voordien wordt afgebeld, wordt de sessie wel aangerekend. Met dank voor het begrip!
-
 
 
 De behandeling gebeurt in gemakkelijk zittende kledij, van zo natuurlijk mogelijk materiaal, dat soepel meegeeft met de verschillende stretch bewegingen. Liever dus een loszittende linnen broek dan een strakke jeans. Dames dragen beter geen sieraden, nylonkousen of rok.
