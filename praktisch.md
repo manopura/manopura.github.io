@@ -8,8 +8,9 @@ menu: praktisch
 ### Prijslijst Wetteren:
  
 Eerste sessie Shiatsu/ Stress Coaching met intake gesprek: 90 min - 90 euro
+
 Vervolgsessies: 
-60 min - 60 euro
+60 min - 60 euro  
 75 min - 75 euro
 
 Voetreflexologie: 
