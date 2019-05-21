@@ -7,7 +7,7 @@ menu: praktisch
 ### Voor Particulieren:
 ### Prijslijst Wetteren:
  
-Eerste sessie Shiatsu/ Stress Coaching met intake gesprek: 90 min - 90 euro
+Eerste sessie Shiatsu/ Stress Coaching met intake gesprek:   90 min - 90 euro
 
 Vervolgsessies: 
 60 min - 60 euro  
@@ -29,10 +29,10 @@ Gelieve wel uw aanwezigheid te bevestigen.
 
 ### Prijslijst Lede
 
-Shiatsu stoel massage: 30 min - 30 euro
-Voetreflex massage: 45 min - 50 euro
-Meditatie: 60 min - 10 euro per persoon
-10 beurten kaart meditatie: 95 euro
+Shiatsu stoel massage: 30 min - 30 euro  
+Voetreflex massage: 45 min - 50 euro  
+Meditatie: 60 min - 10 euro per persoon  
+10 beurten kaart meditatie: 95 euro  
 Gelieve voor de meditatie wel uw aanwezigheid te bevestigen.
 
 
