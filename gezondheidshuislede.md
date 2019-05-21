@@ -34,7 +34,7 @@ Het aanbod in Wetteren blijft tegelijkertijd lopen gelijk je gewend bent; dus je
 Om iedereen te leren kennen en ook het huis al eens te bezichtigen, wordt er een **opendeurdag** 
 georganiseerd: **vrijdag 24 mei vanaf 19u** ben je welkom om een kijkje te komen nemen en met de teamleden in gesprek te gaan. Nodig gerust iedereen, van wie je vindt dat ze er baat bij hebben, uit om mee te komen!
 
-Wie langskomt, zijn email adres achterlaat in het daarvoor bestemde doosje, en Manopura liked op Facebook, maakt kans om dit klein fraai boeddha beeldje te winnen (5,5 cm hoog)!
+Wie langskomt, zijn email adres achterlaat en Manopura liked op Facebook, maakt kans om dit klein fraai boeddha beeldje te winnen (5,5 cm hoog)!
 
 ![gezondheidshuislede](images/kleineboedha.png)
 
