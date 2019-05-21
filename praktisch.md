@@ -13,18 +13,18 @@ Vervolgsessies:
 60 min - 60 euro  
 75 min - 75 euro
 
-Voetreflexologie: 
-45 min - 50 euro
-60 min - 60 euro
+Voetreflexologie:   
+45 min - 50 euro  
+60 min - 60 euro  
 75 min - 75 euro
 
-Reiki: 
-60 min - 60 euro
+Reiki:   
+60 min - 60 euro  
 90 min - 90 euro
 
-Meditatie: 
-60 min - 10 euro per persoon
-10 beurten kaart: 95 euro
+Meditatie:   
+60 min - 10 euro per persoon  
+10 beurten kaart: 95 euro  
 Gelieve wel uw aanwezigheid te bevestigen. 
 
 ### Prijslijst Lede
