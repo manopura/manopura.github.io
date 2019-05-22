@@ -46,14 +46,12 @@ Ik streef naar
 + die zelf-bewust is
 + die intuïtief leeft 
 + met hart en denkvermogen in balans
-
-
-
-
-
+  
+  
+  
 Manopura is lid van de Belgische Shiatsu Federatie.
 
 
 [![belgische shiatsu federatie](images/bsf.png)](http://www.shiatsu.be)
 [![vindeentherapeut](images/vindeentherapeut.png)](https://www.vindeentherapeut.be/therapeut/marian-d-wetteren.html)
-<iframe width="560" height="315" src="https://youtu.be/mqQqY05ojO8" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+
