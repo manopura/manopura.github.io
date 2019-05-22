@@ -8,6 +8,8 @@ Je kan ook een aantal etherische olie kopen, om eventueel te verdampen of in het
 
 Deze olien worden bij Manopura zelf ook gebruikt, als aroma ondersteuning bij de behandeling.
 
+Ook wierook, enkel Den en Sandelhout, is te verkrijgen. Wierook wordt vooral ingezet bij Feng Shui correcties.
+
 
 
 ![etherische_olie](images/kleinolierekje.png)
