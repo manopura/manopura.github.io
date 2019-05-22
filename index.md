@@ -47,7 +47,7 @@ Ik streef naar
 + die intuïtief leeft 
 + met hart en denkvermogen in balans
   
-  
+---  
   
 Manopura is lid van de Belgische Shiatsu Federatie.
 
