@@ -28,6 +28,25 @@ Mijn grote voordeel is dat ik logisch - analytisch sterk ben, als hoogsensitief 
 
 # Missie  
 
+Ik wil een helpende hand bieden aan al wie   
++ rust zoekt
++ over-stressed is
++ lichamelijke (stress)klachten heeft
++ inzicht wil krijgen in de oorzaak ervan en hoe het het beste aan te pakken.  
+
+
+Ik begeleid je op je zoektocht door het leven, en maak er graag tesamen een boeiende ontdekkingstocht van.   
+Ik help je ontdekken  
++ hoe je eigen lichaam werkt
++ hoe emoties het lichaam beinvloeden
++ welke impact het denken op emoties heeft, en dus ook op het lichaam
+
+Ik streef naar  
++ een mens in harmonie
++ die zelf-bewust is
++ die intuïtief leeft 
++ met hart en denkvermogen in balans
+
 
 
 
