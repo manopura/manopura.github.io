@@ -15,11 +15,26 @@ Onder de definitie van **zuiver** (pura), verstaan we o.a. puur, helder, schoon,
 
 De term manopura doet wellicht ook denken aan manipura, die dan weer verwijst naar de derde chakra of energiecentrum, de zonnevlecht. Deze heeft te maken met je kracht, de drijfveer om vorm te geven aan je leven.
 
-Kort gezegd: alles wat je tegenhoudt om jezelf te (kunnen) zijn zoals stress, ziekte, ongemak, blokkades,... tracht ik aan te pakken via complementaire behandelingswijzen om zo ervoor te zorgen dat de zon terug in je leven kan schijnen en je weer jezelf wordt in de zuiverste zin.
-​
+Kort gezegd: alles wat je tegenhoudt om jezelf te (kunnen) zijn zoals stress, ziekte, ongemak, blokkades,... tracht ik aan te pakken via complementaire behandelingswijzen om zo ervoor te zorgen dat de zon terug in je leven kan schijnen en je weer jezelf wordt in de zuiverste zin.  
+
+# Wie ben ik?
+
+Vanuit een stressvolle internationale carrière nu reeds meer dan 20 jaar, kwam als vanzelf de noodzaak om methoden op te zoeken die mij konden ondersteunen, om zowel lichamelijk als geestelijk de druk het hoofd te kunnen blijven bieden.
+Ik volgde vele cursussen gespreid over de laatste 10 jaar, in o.a. mindfulness, heart-fulness, relaxatie, ademhalingstechnieken, muziek, yoga, emotioneel lichaamswerk, basis anatomie en pathologie, en een doorgedreven opleiding Shiatsu plus Voetreflexologie. Dankzij deze verschillende disciplines heb ik een unieke combinatie opgebouwd die alvast voor mij wèrkt, en die ik graag met iedereen deel.
+
+Mijn grote voordeel is dat ik logisch - analytisch sterk ben, als hoogsensitief persoon ook meteen aanvoel wat er speelt en pragmatisch van aanpak ben.  
+
+![fotofrontwebsitemanopura](images/fotofrontwebsitemanopura.png)
+
+# Missie  
+
+
+
+
+
 Manopura is lid van de Belgische Shiatsu Federatie.
 
-![fotohouder](images/fotohouder.jpg)
+
 [![belgische shiatsu federatie](images/bsf.png)](http://www.shiatsu.be)
 [![vindeentherapeut](images/vindeentherapeut.png)](https://www.vindeentherapeut.be/therapeut/marian-d-wetteren.html)
 <iframe width="560" height="315" src="https://youtu.be/mqQqY05ojO8" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
