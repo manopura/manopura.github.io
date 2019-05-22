@@ -4,7 +4,7 @@ menu: etherische_olie
 ---
 # Etherische olie
 
-Je kan ook een aantal **etherische olie** kopen, om eventueel te verdampen of in het badwater te doen, of te mengen bij een andere neutrale olie.
+Je kan ook een aantal **etherische olien** kopen, om eventueel te verdampen of in het badwater te doen, of te mengen bij een andere neutrale olie.
 
 Deze olien worden bij Manopura zelf ook gebruikt, als aroma ondersteuning bij de behandeling.
 
@@ -25,7 +25,7 @@ Wierook wordt vooral ingezet bij Feng Shui correcties.
 + gaat verwardheid tegen 
 + kalmeert bij woedeaanvallen  
 
-**Eucalyptus citriodora**  
+**Eucalyptus citriodora - Citroen eucalyptus**  
 + sterk krampstillend
 + sterk ontstekingsremmend 
 + pijnstillend en verzachtend voor de huid 
@@ -33,18 +33,18 @@ Wierook wordt vooral ingezet bij Feng Shui correcties.
 + bloeddruk verlagend
 + muggen afwerend  
 
-**Lavandula angustifolia**  
+**Lavandula angustifolia - Lavendel**  
 + kalmerend, verzachtend 
 + opbeurend en brengt de geest in balans
 + ontspannend
 + helpt tegen slapeloosheid en stress  
 
-**Melaleuca alternifolia**  
+**Melaleuca alternifolia - Tea Tree**  
 + antiseptische en bacteriedodende werking 
 + desinfecteert snij- en schaafwondjes
 + extra voordelen: vlekt niet, prikt niet op wondjes  
 
-**Pelargonium graveolens**  
+**Pelargonium graveolens - Geranium**  
 + kalmeert en ontspant bij hevige emotionele druk
 + tegen depressies, herstelt het innerlijke evenwicht
 + verdrijft slechte gedachten en onvriendelijke stemmingen
