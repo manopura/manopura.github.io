@@ -4,6 +4,10 @@ menu: etherische_olie
 ---
 # Etherische olie
 
-tekst
+Je kan ook ondersteunende etherische olie kopen, die je eventueel kan verdampen of een paar druppels in het badwater doen, of bij een andere neutrale olie doen.
 
-![feng shui](images/stenen.jpg)
+Deze olien worden bij Manopura zelf ook gebruikt, als aroma ondersteuning bij de behandeling.
+
+
+
+![etherische_olie](images/kleinolierekje.png)
