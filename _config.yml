@@ -24,8 +24,9 @@ github_username:  ginomarckx
 
 # Build settings
 markdown: kramdown
-gems:
+plugins:
   - jekyll-feed
+  - jekyll-paginate
 exclude:
   - Gemfile
   - Gemfile.lock
@@ -38,3 +39,7 @@ sass:
 #  style: expanded
 
 theme: minima
+
+paginate: 5
+paginate_path: "/blog/:num/"
+excerpt_separator: "<!--more-->"

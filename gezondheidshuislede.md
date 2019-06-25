@@ -1,6 +1,6 @@
 ---
 layout: markdown
-menu: reiki
+menu: GezondheidshuisLede
 ---
 # GezondheidshuisLede
 

@@ -1,6 +1,6 @@
 ---
 layout: markdown
-menu: 
+menu: meditatie
 ---
 # Meditatie
 

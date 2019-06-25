@@ -2,48 +2,42 @@
 layout: site
 menu: Blog
 ---
-{% include before.html %}
-	<div id="main" class="flex-child-grow">
 {% if page.image %}
-		<section class="hero full-height" style="background-image: url({{ page.image }})">
-			<div class="row column">
-				<h1>{{ page.title }}</h1>
+<section class="hero full-height" style="background-image: url({{ page.image }})">
+	<div class="row column">
+		<h1>{{ page.title }}</h1>
 {% if page.date %} 
-				<div class="blog date">{{ page.date | date: "%b %-d, %Y" }}</div>
+		<div class="blog date">{{ page.date | date: "%b %-d, %Y" }}</div>
 {% endif %}
-			</div>
-		</section>
+	</div>
+</section>
 {% else %}
-		<section class="row">
-			<div class="row column">
-				<h1>{{ page.title }}</h1>
+<section class="row">
+	<div class="column">
+		<h1>{{ page.title }}</h1>
 {% if page.date %} 
-				<div class="blog date">{{ page.date | date: "%b %-d, %Y" }}</div>
+		<div class="blog date">{{ page.date | date: "%b %-d, %Y" }}</div>
 {% endif %}
-			</div>
-		</section>
+	</div>
+</section>
 {% endif %}
 		
-		<section class="blog">
-			<div class="row">
-				<div class="column small-12 medium-7 large-8">
-					{{ content }}
+<section class="blog">
+	<div class="row">
+		<div class="column small-12 medium-7 large-8">
+			{{ content }}
 		
-					{% include post_tags.html tags=page.tags %}		
-				</div>
-				
-				<div class="column small-12 medium-5 large-4">
+			{% include post_tags.html tags=page.tags %}		
+		</div>
+		
+		<div class="column small-12 medium-5 large-4">
 {% unless page.tag %}
-					<h1>Archief</h1>
-					{% include post_index.html posts=site.posts %}
+			<h1>Archief</h1>
+			{% include post_index.html posts=site.posts %}
 {% endunless %}
 					
-					<h1>Tags</h1>
-					{% include tag_cloud.html %}			
-				</div>
-			</div>
-		</section>
+			<h1>Onderwerpen</h1>
+			{% include tag_cloud.html %}			
+		</div>
 	</div>
-{% include after.html %}
-
-<!-- Hero section -->
+</section>
