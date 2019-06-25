@@ -18,26 +18,8 @@ section {
 		position: center;
 	}
 	
-	color: $color-background;
+	color: white;
 	
 	min-height: 40vh;
 	padding-top: 30vh;
-	
-	.attribution {
-		font-size: xx-small;
-		font-family: $standard-font-stack;
-	    opacity: 0.7;
-		position: absolute;
-		bottom: 0.2em;
-		right: 0.5em;
-		
-		&:before {
-			font-family: cc-icons;
-			content: "cba ";
-		}
-		
-		&, a, a:hover, a:link {
-			color: $color-background;
-		}
-	}
 }
