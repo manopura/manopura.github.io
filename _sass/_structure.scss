@@ -22,4 +22,8 @@ section {
 	
 	min-height: 40vh;
 	padding-top: 30vh;
+	
+	h1:before {
+      content : none;
+	}
 }
