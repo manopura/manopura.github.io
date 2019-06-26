@@ -5,22 +5,16 @@ menu: Blog
 {% if page.image %}
 <section class="hero full-height" style="background-image: url({{ page.image }})">
 	<div class="row column">
-		<h1>{{ page.title }}</h1>
-{% if page.date %} 
-		<div class="blog date">{{ page.date | date: "%b %-d, %Y" }}</div>
-{% endif %}
-	</div>
-</section>
 {% else %}
 <section class="row">
 	<div class="column">
+{% endif %}
 		<h1>{{ page.title }}</h1>
 {% if page.date %} 
-		<div class="blog date">{{ page.date | date: "%b %-d, %Y" }}</div>
+		<div class="blog date">{% include dd.liq post=page %}</div>
 {% endif %}
 	</div>
 </section>
-{% endif %}
 		
 <section class="blog">
 	<div class="row">

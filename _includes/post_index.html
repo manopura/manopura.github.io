@@ -4,9 +4,9 @@
 		{% if post.url == page.url %}
 		{{ post.title }}
 		{% else %}
-		<a href="{{ post.url | prepend: site.baseurl }}">{{ post.title }}</a>
+		<a href="{{ post.url | relative_url }}">{{ post.title }}</a>
 		{% endif %}
-		<div class="date">{{ post.date | date: "%b %-d, %Y" }}</div>
+		<div class="date">{% include dd.liq post=post %}</div>
 	</li>
 	{% endfor %}
 </ul>
