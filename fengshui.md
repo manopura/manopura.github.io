@@ -1,7 +1,7 @@
 ---
 layout: markdown
 menu: fengshui
-image: images/stenen.jpg
+image: /images/stenen.jpg
 title: Feng Shui
 ---
 # Feng Shui
