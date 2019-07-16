@@ -43,12 +43,16 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 
 
 of stuur ons een mailtje marian@manopura.be
+--
 
 
 **Enkele reacties van deelnemers**
-* Meditaties zijn heel goed; ik wil ze blijven doen; ze hebben een meerwaarde voor mij.
+* Meditaties zijn heel goed; ik wil ze blijven doen; ze hebben een meerwaarde voor mij: het naar binnen keren, de rust voelen, het is het moment van de dag alleen voor mij. Na een tijdje voel je echt het verschil overdag.
+* De nachtrust elke keer na de geleide meditatie in groep is telkens heel diepgaand. Die nacht slaap ik het beste van de hele week.
 * Voor mij persoonlijk slaat de éne meditatie meer aan dan de andere. Dat zal voor iedereen anders aanvoelen; dus voor ieder wat wils
+* ik merk dat ik anders in het leven begin te staan: ik slaag er beter in dingen te laten gaan, zonder me erin op te winden. Ik ben ook relaxer in het verkeer; vroeger kon ik me erin enorm ergeren.
 * Geleide meditaties werken nog altijd het beste voor mij. De introducties over verschillende wijsheden en manieren van in het leven staan, blijven telkens zeer leerrijk. 
+* Ik merkte dat ik in het begin keihard mijn best zat te doen: rechte rug, zo recht mogelijk, ademhaling zo diep en lang mogelijk; maar na enkele sessies begreep ik dat ik 'het goed moeten doen' of het 'te goed willen doen' ook kon loslaten. Dat is trouwens een inzicht dat ik meedraag in mijn dagelijkse werk nu.
 
 
 
