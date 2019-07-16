@@ -44,6 +44,14 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 
 of stuur ons een mailtje marian@manopura.be
 
+
+**Enkele reacties van deelnemers**
+* Meditaties zijn heel goed; ik wil ze blijven doen; ze hebben een meerwaarde voor mij.
+* Voor mij persoonlijk slaat de éne meditatie meer aan dan de andere. Dat zal voor iedereen anders aanvoelen; dus voor ieder wat wils
+* Geleide meditaties werken nog altijd het beste voor mij. De introducties over verschillende wijsheden en manieren van in het leven staan, blijven telkens zeer leerrijk. 
+
+
+
 ![meditatie](images/meditatie_web.png)
 
 
