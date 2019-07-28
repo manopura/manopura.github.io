@@ -55,10 +55,19 @@ Ik streef naar
 Manopura doet mee aan "Pure in het Park" op 25 aug in het Hollebeekpark in Merelbeke. Kom je ook?
 ---
 De zachte kracht van een Shiatsu stoelmassage
+
+
 Tijdens de Pure dag in het Park wordt iedereen verwend en getrakteerd op alles wat hoofd, lichaam en geest in balans kan brengen. Daar werkt Manopura uiteraard met veel graagte en enthousiasme aan mee!!
+
+
+
 Een puur relaxerende nek-, schouders-, rugmassage op de stoel, daar knap je meteen helemaal van op! Bovenop je losse en makkelijk zittende kledij worden alle spanningen die zich eventueel in die regio hebben vastgezet, deskundig weggewerkt volgens de principes van Shiatsu en het werken van de meridianen (energiebanen).
+
+
 Kom het gerust uitproberen, zodat je opgelucht en fris van de Pure dag kan genieten, en zonder kopzorgen de volgende week ingaat.
 1 sessie: 20 minuten - 10 euro.
+
+
 Meer info en inschrijvingen op https://www.purehbm.com/pure-in-het-park
 
 
