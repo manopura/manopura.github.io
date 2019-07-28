@@ -49,7 +49,7 @@ Ik streef naar
   
 # Pure in het Park - 25 augustus 2019
 
-![fotofrontwebsitemanopura](images/fotofrontwebsitemanopura.png)
+![purepark](images/purepark.png)
 
 
 Manopura doet mee aan "Pure in het Park" op 25 aug in het Hollebeekpark in Merelbeke. Kom je ook?
