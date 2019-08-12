@@ -15,7 +15,7 @@ Onder de definitie van **zuiver** (pura), verstaan we o.a. puur, helder, schoon,
 
 De term manopura doet wellicht ook denken aan manipura, die dan weer verwijst naar de derde chakra of energiecentrum, de zonnevlecht. Deze heeft te maken met je kracht, de drijfveer om vorm te geven aan je leven.
 
-Kort gezegd: alles wat je tegenhoudt om jezelf te (kunnen) zijn zoals stress, ziekte, ongemak, blokkades,... tracht ik aan te pakken via complementaire behandelingswijzen om zo ervoor te zorgen dat de zon terug in je leven kan schijnen en je weer jezelf wordt in de zuiverste zin.  
+Kort gezegd: alles wat je tegenhoudt om jezelf te (kunnen) zijn zoals stress, ziekte, ongemak, blokkades,... pak ik aan via complementaire behandelingswijzen om zo ervoor te zorgen dat de zon terug in je leven kan schijnen en je weer jezelf wordt in de zuiverste zin.  
 
 # Wie ben ik?
 
