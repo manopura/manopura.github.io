@@ -72,6 +72,9 @@ Meer info en inschrijvingen op https://www.purehbm.com/pure-in-het-park
 
 
 ---  
+Volg ons op [**Facebook**](https://www.facebook.com/manopura/) voor het laatste nieuws!
+---
+
   
 Manopura is lid van de Belgische Shiatsu Federatie.
 
