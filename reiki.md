@@ -19,6 +19,6 @@ De opleiding/ inwijdingen voor Reiki eerste graad zullen starten in het voorjaar
 Ja, ik neem deel!
 
 
-Volg ons op Facebook [**Facebook**](https://www.facebook.com/manopura/) voor het laatste nieuws!
+Volg ons op [**Facebook**](https://www.facebook.com/manopura/) voor het laatste nieuws!
 
 ![reiki](images/reiki.png)
