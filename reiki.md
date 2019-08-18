@@ -16,7 +16,7 @@ Je kan ook uiteraard heel bewust voor een Reiki sessie kiezen.
 De opleiding/ inwijdingen voor Reiki eerste graad zullen starten in het voorjaar van 2020. 
 
 
-[**Ja, ik neem deel!**](http://www.manopura.be/contact.html) aan de kennismakingnamiddag.
+[**Ja, ik neem deel!**](http://www.manopura.be/contact.html) aan de kennismakingnamiddag, en stuur meteen een mail via het contactformulier.
 
 
 Volg ons op [**Facebook**](https://www.facebook.com/manopura/) voor het laatste nieuws!
