@@ -14,7 +14,11 @@ Je kan ook uiteraard heel bewust voor een Reiki sessie kiezen.
 
 **Zaterdag 14 december 2019**, van 14u30 tot 17u30 wordt er een infosessie gehouden als kennismaking wat Reiki precies is, met een korte uitleg en de mogelijkheid even Reiki te ontvangen, zodat je kan aanvoelen wat het je brengt en of dit iets voor jou is.
 De opleiding/ inwijdingen voor Reiki eerste graad zullen starten in het voorjaar van 2020. 
+
+
 Ja, ik neem deel!
-Volg ons op Facebook voor het laatste nieuws!
+
+
+Volg ons op Facebook [**Facebook**](https://www.facebook.com/manopura/) voor het laatste nieuws!
 
 ![reiki](images/reiki.png)
