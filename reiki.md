@@ -17,7 +17,7 @@ De opleiding/ inwijdingen voor Reiki eerste graad zullen starten in het voorjaar
 
 
 [**Ja, ik neem deel!**](http://www.manopura.be/contact.html) aan de kennismakingnamiddag, en stuur meteen een mail via het contactformulier.
-
+[mail](mailto:marian@manopura.be)
 
 Volg ons op [**Facebook**](https://www.facebook.com/manopura/) voor het laatste nieuws!
 
