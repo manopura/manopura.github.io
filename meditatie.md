@@ -41,9 +41,10 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 
 **Registreren noodzakelijk**: via de Facebook pagina van Manopura https://www.facebook.com/pg/manopura/events/?ref=page_internal
 
+of stuur ons een [mailtje](mailto:marian@manopura.be)
 
-of stuur ons een mailtje marian@manopura.be
---
+
+---
 
 
 **Enkele reacties van deelnemers**
