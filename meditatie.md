@@ -26,7 +26,7 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 
 
 **Wat houdt het in?**
-* 1 uurtje in de week samen komen, in een groepje van maximaal 6 personen
+* 1 uurtje in de week samen komen, in een groepje van maximaal 10 personen
 * een inleiding met duiding en uitleg telkens over een ander facet van mediteren
 * de meditatie zelf die begeleid wordt, stap voor stap
 * nabespreking, bij een heerlijk vers kopje thee
