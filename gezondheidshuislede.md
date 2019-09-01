@@ -23,7 +23,7 @@ De nadruk in Lede ligt op relax en wegwerken van fysieke stressklachten:
 
 De zeer doorgedreven analyse voor Shiatsu/ Stress Coaching blijft momenteel alleen in Wetteren.  
 
-Welk voordeel biedt Lede nog? Het is een multidisciplinair team waar je o.a. ook een psycholoog vindt, een TaPasCoach,… . De bedoeling is het team verder uit te bouwen met nog andere aanvullende disciplines. Ken je misschien iemand die ons team wil aanvullen? Laat het ons weten!  
+Welk voordeel biedt Lede nog? Het is een multidisciplinair team waar je o.a. ook een psycholoog vindt, een talent & loopbaancoach,… . De bedoeling is het team verder uit te bouwen met nog andere aanvullende disciplines. Ken je misschien iemand die ons team wil aanvullen? Laat het ons weten!  
 
 
 Boekingen voor Lede gebeuren op dezelfde manier als in Wetteren.  
