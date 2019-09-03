@@ -51,7 +51,7 @@ Cash betalen gaat uiteraard ook.
 + Sommige mutualiteiten komen gedeeltelijk tussen in de kosten.   
 Gelieve u daarover te informeren.
 
-+ Wanneer de afspraak de dag zelf, of tot 24u voordien wordt afgebeld, wordt de sessie wel aangerekend. Met dank voor het begrip!
++ Wanneer de afspraak de dag zelf, of tot 24u voordien wordt afgebeld, wordt de sessie wel aangerekend. Ook wanneer men niet komt opdagen zonder te verwittigen. Met dank voor het begrip!
 
 
 + De behandeling gebeurt in gemakkelijk zittende kledij, van zo natuurlijk mogelijk materiaal, dat soepel meegeeft met de verschillende stretch bewegingen. Liever dus een loszittende linnen broek dan een strakke jeans. Dames dragen beter geen sieraden, nylonkousen of rok.
