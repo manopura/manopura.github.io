@@ -24,11 +24,11 @@ Reiki:
 90 min - 90 euro
 
 Lymfdrainage:
-Aangezichtsbehandeling: 30 minuten - 50 euro
-Behandeling benen: 30 minuten - 50 euro
-Behandeling armen: 30 minuten - 50 euro
-Behandeling rug/buik: 30 minuten - 50 euro
-Volledige lichaamsbehandeling: 60 minuten - 80 euro
+* Aangezichtsbehandeling: 30 minuten - 50 euro
+* Behandeling benen: 30 minuten - 50 euro
+* Behandeling armen: 30 minuten - 50 euro
+* Behandeling rug/buik: 30 minuten - 50 euro
+* Volledige lichaamsbehandeling: 60 minuten - 80 euro
 
 Meditatie:   
 60 min - 10 euro per persoon  
