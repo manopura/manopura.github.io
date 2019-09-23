@@ -24,7 +24,6 @@ De Manuele Lymfdraniage volgens de methode Vodder is op het gehele lichaam toepa
 * verstuikingen
 * bloeduitstortingen
 * spierpijnen of spierletsels
-* dystrofieën
 * klachten als gevolg van stress
 * slapeloosheid
 * concentratieverlies
