@@ -2,7 +2,7 @@
 layout: markdown
 menu: lymfedrainage
 image: 
-title: Manuele lymfe drainage
+title: Manuele lymfdrainage
 ---
 # Manuele lymfdrainage
 
@@ -18,17 +18,17 @@ Het bijzondere van de therapie van Dr. Vodder is dat die niet alleen gericht is 
 
 De Manuele Lymfdraniage volgens de methode Vodder is een zachte massagevorm en is op het gehele lichaam toepasbaar. Ze heeft als doel de vochtdoorstroming te stimuleren en eventuele stagnaties op te heffen, de immuniteit (weerstand) te verhogen, de stress te verlagen en het hormonale stelsel te optimaliseren. De waterhuishouding wordt direct beïnvloed door de stimulatie van het lymfsysteem en indirect door het dempen van het verhoogd stressniveau in het lichaam.
 
-Behandelbare klachten:
+**Behandelbare klachten:**
 
-zwellingen (oedeem)
-verstuikingen
-bloeduitstortingen
-spierpijnen of spierletsels
-dystrofieën
-klachten als gevolg van stress
-slapeloosheid
-concentratieverlies
-constipatie
-hoofdpijn
+* zwellingen (oedeem)
+* verstuikingen
+* bloeduitstortingen
+* spierpijnen of spierletsels
+* dystrofieën
+* klachten als gevolg van stress
+* slapeloosheid
+* concentratieverlies
+* constipatie
+* hoofdpijn
 
 ![feng shui](images/stenen.jpg)
