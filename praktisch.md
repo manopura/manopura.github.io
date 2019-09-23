@@ -43,6 +43,13 @@ Shiatsu stoel massage:
 Voetreflex massage:   
 45 min - 50 euro  
 
+Lymfdrainage:   
+Aangezichtsbehandeling: 30 minuten - 50 euro   
+Behandeling benen: 30 minuten - 50 euro   
+Behandeling armen: 30 minuten - 50 euro   
+Behandeling rug/buik: 30 minuten - 50 euro   
+Volledige lichaamsbehandeling: 60 minuten - 80 euro   
+
 Meditatie:   
 60 min - 10 euro per persoon    
 10 beurten kaart meditatie: 95 euro  
