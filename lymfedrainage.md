@@ -30,4 +30,15 @@ De Manuele Lymfdraniage volgens de methode Vodder is op het gehele lichaam toepa
 * constipatie
 * hoofdpijn
 
+
+**Prijzen**
+
+Aangezichtsbehandeling: 30 minuten - 50 euro
+Behandeling benen: 30 minuten - 50 euro
+Behandeling armen: 30 minuten - 50 euro
+Behandeling rug/buik: 30 minuten - 50 euro
+Volledige lichaamsbehandeling: 60 minuten - 80 euro
+
+
+
 ![lymfdrainage](images/lymfe.png)
