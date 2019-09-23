@@ -31,4 +31,4 @@ De Manuele Lymfdraniage volgens de methode Vodder is op het gehele lichaam toepa
 * constipatie
 * hoofdpijn
 
-![feng shui](images/stenen.jpg)
+![lymfdrainage](images/lymfe.png)
