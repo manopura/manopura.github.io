@@ -12,13 +12,13 @@ menu: GezondheidshuisLede
 
 Vanaf **3 juni** kan je mij ook vinden in Lede, in het [**Gezondheidshuis**](https://gezondheidshuislede.be), Rammelstraat nr 10.
 
-Voor het ogenblik alleen op **woensdagnamiddagen van 13u30 tot 17u30**.  
+Voor het ogenblik alleen op **woensdagnamiddagen van 14u00 tot 18u00**.  
 
 
 De nadruk in Lede ligt op relax en wegwerken van fysieke stressklachten:  
 + korte stoelmassages (30 min - 30 €) voor hoofd/nek/schouder klachten  
 + voetreflexologie, ontspannende voet massage (45 minuten - 50 €)   
-+ een uur meditatie van 16u00 tot 17u00 (10 € per persoon).  
++ een uur meditatie van 17u00 tot 18u00 (10 € per persoon).  
 
 
 De zeer doorgedreven analyse voor Shiatsu/ Stress Coaching blijft momenteel alleen in Wetteren.  
