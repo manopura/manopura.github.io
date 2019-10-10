@@ -18,7 +18,7 @@ Voor het ogenblik alleen op **woensdagnamiddagen van 14u00 tot 18u00**.
 De nadruk in Lede ligt op relax en wegwerken van fysieke stressklachten:  
 + korte stoelmassages (30 min - 30 €) voor hoofd/nek/schouder klachten  
 + voetreflexologie, ontspannende voet massage (45 minuten - 50 €)   
-+ een uur meditatie van 17u00 tot 18u00 (10 € per persoon).  
++ een uur relaxatie-oefeningen/ meditatie van 17u00 tot 18u00 (10 € per persoon).  
 
 
 De zeer doorgedreven analyse voor Shiatsu/ Stress Coaching blijft momenteel alleen in Wetteren.  
