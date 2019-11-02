@@ -19,7 +19,7 @@ Kort gezegd: alles wat je tegenhoudt om jezelf te (kunnen) zijn zoals stress, zi
 
 # Wie ben ik?
 
-Vanuit een stressvolle internationale carrière nu reeds meer dan 21 jaar, kwam als vanzelf de noodzaak om methoden op te zoeken die mij konden ondersteunen, om zowel lichamelijk als geestelijk de druk het hoofd te kunnen blijven bieden.
+Vanuit een stressvolle internationale carrière nu reeds meer dan 21 jaar, moest ik op de duur zelf op zoek naar methoden die mij konden ondersteunen, om zowel lichamelijk als geestelijk de druk het hoofd te kunnen blijven bieden.
 Ik volgde vele cursussen gespreid over de laatste 10 jaar, in o.a. mindfulness, heart-fulness, relaxatie, ademhalingstechnieken, muziek, yoga, oude healingsmethoden, emotioneel lichaamswerk, basis anatomie en pathologie, en een doorgedreven opleiding Shiatsu plus Voetreflexologie. Dankzij deze verschillende disciplines heb ik een unieke combinatie opgebouwd die alvast voor mij wèrkt, en die ik graag met iedereen deel.
 
 Mijn grote voordeel is dat ik logisch - analytisch sterk ben, als hoogsensitief persoon ook meteen aanvoel wat er speelt en pragmatisch van aanpak ben.  
