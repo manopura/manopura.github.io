@@ -19,7 +19,7 @@ Er zijn verschillende wierookhouders en oliebranders voor handen.
 
 
 ![etherische_olie](images/kleinolierekje.png)  
-![kristallen](images/kristallenklein.jpg)
+![tWinkelhoekje](images/kristallenklein.JPG)
 
 
 Meer uitleg over de oliën en de gesteenten:
