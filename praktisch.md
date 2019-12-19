@@ -33,7 +33,7 @@ Behandeling armen: 30 minuten - 50 euro
 Behandeling rug/buik: 30 minuten - 50 euro   
 Volledige lichaamsbehandeling: 60 minuten - 80 euro
 
-Meditatie:   
+Meditatie (groepsles):   
 60 min - 10 euro per persoon  
 10 beurten kaart: 95 euro  
 Gelieve wel uw aanwezigheid te bevestigen. 
