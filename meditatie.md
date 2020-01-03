@@ -33,11 +33,11 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 * wekelijkse oefening zelfde dag zelfde uur.
 
 **Praktisch**
-* Wekelijks, op woensdag om **17u00** in het [**Gezondheidshuis**](https://gezondheidshuislede.be) (zie info onder Aanbod); om **20u00** in de praktijkruimte van Manopura in Wetteren
-* Bijdrage: 10 € per sessie, te betalen de avond zelf via de BanContact app op je smartphone of cash; 
-* Mogelijkheid om in te tekenen voor een 10 weken programma (95€ -> 5€ korting!) 
+* Wekelijks, behalve tijdens schoolvakanties, om **20u00** in de praktijkruimte van Manopura in Wetteren 
+* 10 euro per les
+* Mogelijkheid om een 10-beurtenkaart aan te schaffen (95€ -> 5€ korting!) 
 * Wie meditatie kussens, poef, matje heeft, mag die meebrengen. Er is zowiezo wel een poef en een matje voorzien.
-
+* Focus vanaf januari 2020 tot Paasvakantie: hoe omgaan met moeilijk emoties als verdriet, angst, boosheid, frustratie,...
 
 **Registreren noodzakelijk**: via de Facebook pagina van Manopura https://www.facebook.com/pg/manopura/events/?ref=page_internal
 
