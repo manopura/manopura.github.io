@@ -17,7 +17,10 @@ Je kan **relax** sessies boeken die zorgen voor het wegwerken van fysieke stress
 + korte stoelmassages (30 min - 30 €) voor hoofd/nek/schouder klachten  
 + voetreflexologie, ontspannende voet massage (45 minuten - 50 €)   
 
-Daarnaast is er het lessenpakket **"Hoe omgaan met moeilijke emoties als verdriet, angst, boosheid,..."**. In 10 lessen van 1 uur leer je met relaxatie-oefeningen en meditatie technieken rustig blijven wanneer moeilijke emoties de kop opsteken! Het voordeel van een groep is dat je een breder draagvlak voelt, en leert uit de ervaringen van anderen. Gedeelde pijn is halve pijn! 
+Daarnaast is er het lessenpakket **"Hoe omgaan met moeilijke emoties als verdriet, angst, boosheid,..."**. In 10 lessen van 1 uur leer je met relaxatie-oefeningen en meditatie technieken rustig te blijven wanneer moeilijke emoties de kop opsteken! Het voordeel van een groep is dat je een breder draagvlak voelt, en leert uit de ervaringen van anderen. Gedeelde pijn is halve pijn! 
+
+
+
 Praktisch: 10 lessen, start woensdag 22 januari 2020, 17u-18u. Wekelijks, behalve tijdens schoolvakanties. 120 euro voor het totaalpakket; 12 euro per losse les.
 Tegen de Paasvakantie heb je aangeleerd anders te kijken en om te gaan met moeilijke emoties.
 
