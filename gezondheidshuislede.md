@@ -13,11 +13,11 @@ menu: GezondheidshuisLede
 Ik zit ook in Lede, in het [**Gezondheidshuis**](https://gezondheidshuislede.be), Rammelstraat nr 10 op **woensdagnamiddagen van 14u00 tot 18u00**.  
 
 
-Je kan **relax** sessies boeken die zorgen voor het wegwerken van fysieke stressklachten:  
+Je kan relax sessies boeken die zorgen voor het **wegwerken van fysieke stressklachten**:  
 + korte stoelmassages (30 min - 30 €) voor hoofd/nek/schouder klachten  
 + voetreflexologie, ontspannende voet massage (45 minuten - 50 €)   
 
-Daarnaast is er het lessenpakket **"Hoe omgaan met moeilijke emoties als verdriet, angst, boosheid,..."**. In 10 lessen van 1 uur leer je met relaxatie-oefeningen en meditatie technieken rustig te blijven wanneer moeilijke emoties de kop opsteken! Het voordeel van een groep is dat je een breder draagvlak voelt, en leert uit de ervaringen van anderen. Gedeelde pijn is halve pijn! 
+Daarnaast is er het **lessenpakket "Hoe omgaan met moeilijke emoties als verdriet, angst, boosheid,..."**. In 10 lessen van 1 uur leer je met relaxatie-oefeningen en meditatie technieken rustig te blijven wanneer moeilijke emoties de kop opsteken! Het voordeel van een groep is dat je een breder draagvlak voelt, en leert uit de ervaringen van anderen. Gedeelde pijn is halve pijn! 
 
 
 
