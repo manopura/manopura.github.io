@@ -17,7 +17,7 @@ Je kan relax sessies boeken die zorgen voor het **wegwerken van fysieke stresskl
 + korte stoelmassages (30 min - 35 €) voor hoofd/nek/schouder klachten  
 + voetreflexologie, ontspannende voet massage (45 minuten - 50 €)   
 
-Daarnaast is er het **relaxatie lessenpakket "Hoe omgaan met moeilijke emoties als verdriet, angst, boosheid,..."**. In 10 lessen van 1 uur leer je met relaxatie-oefeningen en meditatie technieken rustig te blijven wanneer moeilijke emoties de kop opsteken! Het voordeel van een groep is dat je een breder draagvlak voelt, en leert uit de ervaringen van anderen. Gedeelde pijn is halve pijn! 
+Daarnaast is er het **relaxatie lessenpakket** met als thema komende 10 weken **"Hoe omgaan met moeilijke emoties als verdriet, angst, boosheid,..."**. In 10 lessen van 1 uur leer je met relaxatie-oefeningen en meditatie technieken rustig te blijven wanneer moeilijke emoties de kop opsteken! Het voordeel van een groep is dat je een breder draagvlak voelt, en leert uit de ervaringen van anderen. Gedeelde pijn is halve pijn! 
 
 
 
