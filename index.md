@@ -9,9 +9,16 @@ menu: welkom
 
 Mano pura betekent letterlijk in het Italiaans **"zuivere hand"**. 
 De behandelaar werkt met de handen, om (stress) klachten aan te pakken of spanningen uit het lichaam te helpen verzachten en oplossen.
+
+
 Maar Manopura is meer dan een lichamelijke behandeling; het gaat veel dieper; er wordt ingezoemd op alles wat eventueel in je omgeving stress veroorzaakt, en dat kan gaan van het soort werk dat je doet, de relaties rondom je, je omgeving, emoties die je parten spelen; ja, zelfs je voeding!
 
 Coachend leer je aan hoe met die verschillende stressoren om te gaan.
+Manopura staat erom bekend om door te zoeken naar de "root cause", de dieperliggende oorzaak van waar het probleem precies ooit begonnen is. Want je wil niet telkens met je lichamelijke klachten hervallen!
+Daarom krijg je persoonlijke begeleiding, volledig op jouw maat en afgestemd jouw noden, in een warme en begripvolle omgeving, discreet en professioneel, zonder zweverige blabla.
+
+
+
 
 
 # Wie ben ik?
