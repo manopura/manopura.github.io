@@ -7,9 +7,9 @@ menu: praktisch
 ### Voor Particulieren:
 ### Prijslijst:
  
-Eerste sessie Shiatsu/ Stress Coaching met intake gesprek    
+Eerste sessie met intake gesprek    
 afhankelijk van de duur:   
-60 min - 60 euro
+60 min - 60 euro   
 90 min - 90 euro
 
 Vervolgsessies:   
