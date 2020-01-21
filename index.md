@@ -61,11 +61,14 @@ Ik streef naar
 
 # Voor wie kan Manopura iets betekenen?
 
-+ mensen met steeds terugkerende (lichamelijke) klachten
-+ mensen die klinisch onderzocht zijn, maar waar geen medische oorzaak voor het ongemak werd gevonden
-+ mensen die veel stress ervaren, en burn-out vòòr willen blijven
-+ mensen op zoek naar diepgang, die intuïtief weten dat er meer is, en daarin begeleiding zoeken
-+ mensen die hun zelfbewustzijn verder willen doen groeien
++ voor mensen met steeds terugkerende (lichamelijke) klachten
++ voor mensen die klinisch onderzocht zijn, maar waar geen medische oorzaak voor het ongemak werd gevonden
++ voor mensen die veel stress ervaren, en burn-out vòòr willen blijven
++ voor mensen op zoek naar diepgang, die intuïtief weten dat er meer is, en daarin begeleiding zoeken
++ voor mensen die hun zelfbewustzijn verder willen doen groeien
++ hoogsensitieve mensen (HSP) en HSS (High Sensation Seeker)
++ voor kritische mentale mensen die vooral in het hoofd leven, en terug willen leren voelen
++ voor mensen die bereid zijn aan zichzelf te willen werken
 
 
 ---  
