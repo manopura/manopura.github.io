@@ -7,15 +7,12 @@ menu: welkom
 
 # Waar staat Manopura voor?
 
-Mano pura betekent letterlijk in het Italiaans **"zuivere hand"**. Beide woorden hebben hun diepere betekenis:
- 
-De **hand** (mano) omdat de Shiatsu en Reiki behandelaar hoofdzakelijk zijn handen gebruikt. De hand heeft ook een grote symbolische waarde: een helpende hand, een beschermende hand, een verzorgende hand.
- 
-Onder de definitie van **zuiver** (pura), verstaan we o.a. puur, helder, schoon, niet vermengd met iets wat er niet bij of in hoort... Het spreekt voor zich dat de behandelaar zelf zuiver en in balans hoort te zijn alvorens hij een behandeling adequaat kan uitvoeren. Daarenboven wordt tijdens een behandeling getracht alle onzuiverheden uit het systeem weg te werken.
+Mano pura betekent letterlijk in het Italiaans **"zuivere hand"**. 
+De behandelaar werkt met de handen, om (stress) klachten aan te pakken of spanningen uit het lichaam te helpen verzachten en oplossen.
+Maar Manopura is meer dan een lichamelijke behandeling; het gaat veel dieper; er wordt ingezoemd op alles wat eventueel in je omgeving stress veroorzaakt, en dat kan gaan van het soort werk dat je doet, de relaties rondom je, je omgeving, emoties die je parten spelen; ja, zelfs je voeding!
 
-De term manopura doet wellicht ook denken aan manipura, die dan weer verwijst naar de derde chakra of energiecentrum, de zonnevlecht. Deze heeft te maken met je kracht, de drijfveer om vorm te geven aan je leven.
+Coachend leer je aan hoe met die verschillende stressoren om te gaan.
 
-Kort gezegd: alles wat je tegenhoudt om jezelf te (kunnen) zijn zoals stress, ziekte, ongemak, blokkades,... pak ik aan via complementaire behandelingswijzen om zo ervoor te zorgen dat de zon terug in je leven kan schijnen en je weer jezelf wordt in de zuiverste zin.  
 
 # Wie ben ik?
 
