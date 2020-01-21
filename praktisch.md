@@ -14,7 +14,7 @@ afhankelijk van de duur:
 
 Vervolgsessies:   
 60 min - 60 euro  
-75 min - 75 euro
+75 min - 75 euro   
 90 min - 90 euro 
 
 Shiatsu stoel nek-, schouders-, rugmassage:   
