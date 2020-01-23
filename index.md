@@ -40,7 +40,7 @@ Mijn grote voordeel is dat ik logisch - analytisch sterk ben, als hoogsensitief 
 
 Ik wil een helpende hand bieden aan al wie   
 + rust zoekt
-+ over-stressed is
++ over-stressed of overprikkeld is
 + lichamelijke (stress)klachten heeft
 + inzicht wil krijgen in de oorzaak ervan en hoe het het beste aan te pakken.  
 
@@ -63,7 +63,7 @@ Ik streef naar
 
 + voor mensen met steeds terugkerende (lichamelijke) klachten
 + voor mensen die klinisch onderzocht zijn, maar waar geen medische oorzaak voor het ongemak werd gevonden
-+ voor mensen die veel en chronische stress ervaren, en burn-out vòòr willen blijven
++ voor mensen die chronische stress ervaren, en burn-out vòòr willen blijven
 + voor mensen in burn-out, die terug energie willen herwinnen
 + hoogsensitieve mensen (HSP) en HSS (High Sensation Seeker)
 + voor kritische mentale mensen die vooral in het hoofd leven, en terug willen leren voelen
