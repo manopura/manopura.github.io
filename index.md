@@ -66,7 +66,7 @@ Ik streef naar
 + voor mensen die chronische stress ervaren, en burn-out vòòr willen blijven
 + voor mensen in burn-out, die terug energie willen herwinnen
 + hoogsensitieve mensen (HSP) en HSS (High Sensation Seeker)
-+ voor kritische mentale mensen die vooral in het hoofd leven, en terug willen leren voelen
++ voor vrouwen die door omstandigheden (werk of privé) zeer mentaal geworden zijn, en terug connectie willen maken met hun aangeboren intuïtie en aanvoelen.
 + voor mensen op zoek naar diepgang, die intuïtief weten dat er meer is, en daarin begeleiding zoeken
 + voor mensen die hun zelfbewustzijn verder willen doen groeien
 + voor mensen die bereid zijn aan zichzelf te willen werken
