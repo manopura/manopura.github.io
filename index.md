@@ -24,7 +24,7 @@ Daarom krijg je persoonlijke begeleiding, volledig op jouw maat en afgestemd op 
 # Wie ben ik?
 
 Vanuit een stressvolle internationale carrière nu reeds meer dan 21 jaar, moest ik op de duur zelf op zoek naar methoden die mij konden ondersteunen, om zowel lichamelijk als geestelijk de druk het hoofd te kunnen blijven bieden.
-Ik volgde vele cursussen gespreid over de laatste 10 jaar, in o.a. mindfulness, heart-fulness, relaxatie, ademhalingstechnieken, muziek, yoga, oude healingsmethoden, emotioneel lichaamswerk, basis anatomie en pathologie, en een doorgedreven opleiding Shiatsu plus Voetreflexologie. Dankzij deze verschillende disciplines heb ik een unieke combinatie opgebouwd die alvast voor mij wèrkt, en die ik graag met iedereen deel.
+Ik volgde vele cursussen gespreid over de laatste 10 jaar, in o.a. mindfulness, heart-fulness, relaxatie, ademhalingstechnieken, stress coach, muziek, yoga, oude healingsmethoden, emotioneel lichaamswerk, basis anatomie en pathologie, en een doorgedreven opleiding Shiatsu plus Voetreflexologie. Dankzij deze verschillende disciplines heb ik een unieke combinatie opgebouwd die alvast voor mij wèrkt, en die ik graag met iedereen deel.
 
 Ik begin traditioneel met een intake gesprek, om jouw situatie goed te begrijpen. Ik werk zowel op lichaam (via Shiatsu, Voetreflexologie, Lymfdrainage, Reiki) als op geest (coaching, oude healing methoden, meditatie). Het lichaam zelf speelt een cruciale rol, omdat pijn en ongemak altijd een vertaling zijn van wat daar precies aan de basis van ligt. Plus ons denkvermogen wordt toch al te veel belast, en het lichaam al te veel verwaarloosd.
 
