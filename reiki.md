@@ -12,9 +12,9 @@ Reiki wordt toegepast daar waar energiestromen in het lichaam geblokkeerd raken 
 Ik pas Reiki voornamelijk toe op mensen die Shiatsu als te ingrijpend of onaangenaam ervaren.
 Je kan ook uiteraard heel bewust voor een Reiki sessie kiezen. 
 
-**Vrijdag 1 mei 2020**, van 14u00 tot 16u00 wordt er een infosessie gehouden als kennismaking wat Reiki precies is, met een korte uitleg en de mogelijkheid even Reiki te ontvangen, zodat je kan aanvoelen wat het je brengt en of dit iets voor jou is. Inkom 30 euro.   
+**Maandagavond 23 maart 2020**, van 19u30 tot 21u30 wordt er een infosessie gehouden als kennismaking wat Reiki precies is, met een korte uitleg en de mogelijkheid even Reiki te ontvangen, zodat je kan aanvoelen wat het je brengt en of dit iets voor jou is. Inkom 30 euro.   
 
-De opleiding/ inwijdingen voor Reiki eerste graad zullen starten in het voorjaar van 2020. Hou onze Facebook in de gaten!
+De opleiding/ inwijdingen voor Reiki eerste graad starten in het voorjaar van 2020. Kijk op onze Facebook voor alle data en details!
 
 
 [**Ja, ik neem deel!**](mailto:marian@manopura.be) aan de kennismaking-namiddag! 
