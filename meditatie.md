@@ -49,7 +49,7 @@ of stuur ons een [mailtje](mailto:marian@manopura.be)
 
 **Enkele reacties van deelnemers**
 
-* Ik ben voor de allereerste keer bij Manopura gekomen en heb de 10-delige meditatiereeks ‘hoofd’ gevolgd.
+* Ik heb de 10-delige meditatiereeks ‘hoofd’ gevolgd.
 Ik was aangenaam verrast door de aanpak van Marian.
 Zij brengt het op een rustige maar gestructureerde manier.
 Eerst is er een rondvraag over de ervaringen van de voorbije week.
@@ -59,6 +59,8 @@ Het gevolg is dan ook dat je snel door hebt wanneer de gedachten de vrije loop g
 Ik vond het geweldig om alvast 1 keer per week een vast moment te hebben en dus tenvolle te kunnen genieten van dit aanbod. Een aanrader om de reeksen te volgen !
 
 * Ik merkte dat ik in het begin keihard mijn best zat te doen: rechte rug, zo recht mogelijk, ademhaling zo diep en lang mogelijk; maar na enkele sessies begreep ik dat ik 'het goed moeten doen' of het 'te goed willen doen' ook kon loslaten. Dat is trouwens een inzicht dat ik meedraag in mijn dagelijkse werk nu.   
+* Ik neem al ruime tijd geen medicatie meer tegen mijn woede aanvallen of depressie, mediteren is mijn "pil" nu 💪. Soms heb ik nog eens een korte terugval, dat voelt niet lekker aan maar het is nu anders, ik herpak me vlugger tegen dat ik vroeger voor dagen in de put zat en liep te piekeren. Dus ja, de flow zit goed en ik blijf er verder aan werken. Ik heb zelfs deze week voor het eerst in mijn leven kunnen zeggen dat ik op mijn eigen fier en trots was! 💖 Ik ben blij en dankbaar dat ik de weg naar Manopura gevonden heb!
+
 * Meditaties zijn heel goed; ik wil ze blijven doen; ze hebben een meerwaarde voor mij: het naar binnen keren, de rust voelen, het is het moment van de dag alleen voor mij. Na een tijdje voel je echt het verschil overdag.
 * De nachtrust elke keer na de geleide meditatie in groep is telkens heel diepgaand. Die nacht slaap ik het beste van de hele week.
 * Voor mij persoonlijk slaat de éne meditatie meer aan dan de andere. Dat zal voor iedereen anders aanvoelen; dus voor ieder wat wils
