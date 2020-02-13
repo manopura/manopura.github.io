@@ -4,7 +4,7 @@ menu: Getuigenissen
 ---
 # Getuigenissen
 
-Ik ben voor de allereerste keer bij Manopura gekomen en heb de 10-delige meditatiereeks ‘hoofd’ gevolgd.
+Ik heb de 10-delige meditatiereeks ‘hoofd’ gevolgd.
 Ik was aangenaam verrast door de aanpak van Marian.
 Zij brengt het op een rustige maar gestructureerde manier.
 Eerst is er een rondvraag over de ervaringen van de voorbije week.
@@ -45,6 +45,14 @@ Dus Marian een dikke merci !!!
 *Sofie*
 
 ---
+
+Ik neem al ruime tijd geen medicatie meer tegen mijn woede aanvallen of depressie, mediteren is mijn "pil" nu 💪. Soms heb ik nog eens een korte terugval, dat het voelt niet lekker aan maar het is anders, ik herpak me vlugger tegen dat ik vroeger voor dagen in de put zat en liep te piekeren. Dus ja, de flow zit goed en ik blijf er verder aan werken. Ik heb zelfs deze week voor het eerst in mijn leven kunnen zeggen dat ik op mijn eigen fier en trots was! 💖
+
+*Anoniem*
+
+
+---
+
 
 Marian, Ik wil je al eens bedanken. Sinds ik geweest ben is de pijn zo goed als weg en heb ik al de ganse week super goed geslapen en moet ik zelf niet opstaan. Ik voel me precies herboren. Tot de volgende afspraak!
 
