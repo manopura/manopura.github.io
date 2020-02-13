@@ -46,7 +46,7 @@ Dus Marian een dikke merci !!!
 
 ---
 
-Ik neem al ruime tijd geen medicatie meer tegen mijn woede aanvallen of depressie, mediteren is mijn "pil" nu 💪. Soms heb ik nog eens een korte terugval, dat voelt niet lekker aan maar het is nu anders, ik herpak me vlugger tegen dat ik vroeger voor dagen in de put zat en liep te piekeren. Dus ja, de flow zit goed en ik blijf er verder aan werken. Ik heb zelfs deze week voor het eerst in mijn leven kunnen zeggen dat ik op mijn eigen fier en trots was! 💖
+Ik neem al ruime tijd geen medicatie meer tegen mijn woede aanvallen of depressie, mediteren is mijn "pil" nu 💪. Soms heb ik nog eens een korte terugval, dat voelt niet lekker aan maar het is nu anders, ik herpak me vlugger tegen dat ik vroeger voor dagen in de put zat en liep te piekeren. Dus ja, de flow zit goed en ik blijf er verder aan werken. Ik heb zelfs deze week voor het eerst in mijn leven kunnen zeggen dat ik op mijn eigen fier en trots was! 💖 Ik ben blij en dankbaar dat ik de weg naar Manopura gevonden heb!
 
 *Anoniem*
 
