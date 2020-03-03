@@ -18,7 +18,7 @@ Vervolgsessies:
 90 min - 90 euro 
 
 Shiatsu stoel nek-, schouders-, rugmassage:   
-30 min - 30 euro
+30 min - 35 euro
 
 Voetreflexologie:   
 45 min - 50 euro  
@@ -36,12 +36,14 @@ Behandeling armen: 30 minuten - 50 euro
 Behandeling rug/buik: 30 minuten - 50 euro   
 Volledige lichaamsbehandeling: 60 minuten - 80 euro
 
-Meditatie (groepsles):   
+Meditatie Wetteren (groepsles):   
 60 min - 10 euro per persoon  
 10 beurten kaart: 95 euro  
-Gelieve wel uw aanwezigheid te bevestigen. 
+Gelieve uw aanwezigheid te bevestigen op marian@manopura.be 
 
-
+Lede relaxatie en meditatie groepsles:
+60 min - 15 euro per persoon
+Gelieve uw aanwezigheid te bevestigen op marian@manopura.be
 
 ### Praktisch  
 
