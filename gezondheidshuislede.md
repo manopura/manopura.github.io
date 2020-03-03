@@ -13,7 +13,7 @@ menu: GezondheidshuisLede
 Ik zit ook in Lede, in het [**Gezondheidshuis**](https://gezondheidshuislede.be), Rammelstraat nr 10 op **woensdagnamiddagen van 14u00 tot 18u00**.  
 
 
-Je kan relax sessies boeken die zorgen voor het **wegwerken van fysieke stressklachten**:  
+Je kan relax sessies boeken die zorgen voor het **wegwerken van fysieke (stress)klachten**:  
 + korte stoelmassages (30 min - 35 €) voor hoofd/nek/schouder klachten  
 + voetreflexologie, ontspannende voet massage (45 minuten - 50 €)   
 
