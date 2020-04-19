@@ -20,7 +20,7 @@ KOM TOT RUST - FULL VERSION
 - niet alleen mentale onrust, maar ook emotionele onrust en het leren vertrouwen op intuitie komen aan bod.   
 - online of face2face
 - start bij elk nieuw schooljaar; nieuwe reeks voorzien vanaf september 2020
-- elke woensdagavond 20-21u   
+- elke woensdagavond 20-21u, behalve tijdens schoolvakanties   
 - 10 euro per les   
 
 
@@ -39,8 +39,8 @@ KOM TOT RUST - FULL VERSION
 - mix van theorie met praktische lichaamsoefeningen
 - gebaseerd op de 5 elementen leer en shiatsu principes  
 - vele bruikbare tips en handige oefeningen   
-- face2face: 6 zaterdagen; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 780 euro voor het pakket van 6 lessen; 150 euro per losse lesdag.
-- online: 12 dinsdagavonden 19-21u30; start vanaf september 2020; elke 2 weken; 600 euro voor het pakket van 12 lessen; 50 euro per losse les.
+- face2face: 6 zaterdagen; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 780 euro voor het pakket van 6 lessen; 150 euro per losse lesdag.   
+- online: 12 dinsdagavonden 19-21u30; start vanaf 8 september 2020; elke 2 weken; 600 euro voor het pakket van 12 lessen; 50 euro per losse les. Data: 8/9, 22/9, 6/10, 20/10, 10/11, 24/11, 8/12, 22/12, 12/1/21, 26/1/21, 9/2/21, 23/2/21   
 
 
 
