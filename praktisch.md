@@ -29,7 +29,8 @@ Reiki:
 60 min - 60 euro  
 90 min - 90 euro
 
-Coaching traject: 8 sessies van 1,5u - 700 euro in totaal
+Coaching traject:    
+8 sessies van 1,5u - 700 euro in totaal
 
 Lymfdrainage:   
 Aangezichtsbehandeling: 30 minuten - 50 euro   
