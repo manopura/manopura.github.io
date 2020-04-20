@@ -29,6 +29,8 @@ Reiki:
 60 min - 60 euro  
 90 min - 90 euro
 
+Coaching traject: 8 sessies van 1,5u - 700 euro in totaal
+
 Lymfdrainage:   
 Aangezichtsbehandeling: 30 minuten - 50 euro   
 Behandeling benen: 30 minuten - 50 euro   
@@ -41,7 +43,7 @@ Meditatie Wetteren (groepsles):
 10 beurten kaart: 95 euro  
 Gelieve uw aanwezigheid te bevestigen op marian@manopura.be 
 
-Lede relaxatie en meditatie groepsles:   
+Lede relaxatie en meditatie (groepsles):   
 60 min - 15 euro per persoon   
 Gelieve uw aanwezigheid te bevestigen op marian@manopura.be   
 
