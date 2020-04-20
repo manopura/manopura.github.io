@@ -11,17 +11,17 @@ KOM TOT RUST - LIGHT VERSION
 - inzicht verkrijgen waar bij jou het ongemak precies vandaan komt   
 - persoonlijke begeleiding   
 - online, elke maandagavond 20-21u   
-- 10 euro per les   
+- 10 euro per les; 10 beurtenkaart aan 95 euro   
 - 10 weken
 
-KOM TOT RUST - FULL VERSION   
-- jaarcursus: 30 lessen   
-- werkt dieper door, tot op 3 niveaus: hoofd, hart, hara   
+KOM TOT RUST - FULL VERSION      
+- werkt dieper door, op 3 niveaus: hoofd, hart, hara (=buik)     
 - niet alleen mentale onrust, maar ook emotionele onrust en het leren vertrouwen op intuitie komen aan bod.   
 - online of face2face
 - start bij elk nieuw schooljaar; nieuwe reeks voorzien vanaf september 2020
 - elke woensdagavond 20-21u, behalve tijdens schoolvakanties   
-- 10 euro per les   
+- 10 euro per les; 10 beurtenkaart aan 95 euro  
+- 30 weken (elk deel 10 lessen: 3x10)   
 
 
 **BOOST JE IMMUUNSYSTEEM**   
