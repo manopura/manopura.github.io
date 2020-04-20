@@ -16,7 +16,7 @@ KOM TOT RUST - LIGHT VERSION
 
 KOM TOT RUST - FULL VERSION      
 - werkt dieper door, op 3 niveaus: hoofd, hart, hara (=buik)     
-- niet alleen mentale onrust, maar ook emotionele onrust en het leren vertrouwen op intuitie komen aan bod.   
+- niet alleen mentale onrust, maar ook emotionele onrust, het leren vertrouwen op intuitie en het (her)ontdekken van je eigen creatieve waarde komen aan bod.   
 - online of face2face
 - start bij elk nieuw schooljaar; nieuwe reeks voorzien vanaf september 2020
 - elke woensdagavond 20-21u, behalve tijdens schoolvakanties   
