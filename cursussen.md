@@ -12,7 +12,7 @@ KOM TOT RUST - LIGHT VERSION
 - persoonlijke begeleiding   
 - online, elke maandagavond 19-20u   
 - 10 euro per les; 10 beurtenkaart aan 95 euro   
-- 10 weken (laatste les 3 juni 2020) 
+- 10 weken (laatste les 3 juni 2020)    
 *Als er veel vraag of nood aan is, kan ik dit gedeelte nogmaals aanbieden tijdens de zomermaanden. Laat het me weten!*
 
 KOM TOT RUST - FULL VERSION      
