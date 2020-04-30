@@ -10,9 +10,10 @@ KOM TOT RUST - LIGHT VERSION
 - lichaamsoefeningen en geestelijke oefeningen om de rust te leren opzoeken en bewaren   
 - inzicht verkrijgen waar bij jou het ongemak precies vandaan komt   
 - persoonlijke begeleiding   
-- online, elke maandagavond 20-21u   
+- online, elke maandagavond 19-20u   
 - 10 euro per les; 10 beurtenkaart aan 95 euro   
-- 10 weken
+- 10 weken (laatste les 3 juni 2020) 
+*Als er veel vraag of nood aan is, kan ik dit gedeelte nogmaals aanbieden tijdens de zomermaanden. Laat het me weten!*
 
 KOM TOT RUST - FULL VERSION      
 - werkt dieper door, op 3 niveaus: hoofd, hart, hara (=buik)     
@@ -28,7 +29,7 @@ KOM TOT RUST - FULL VERSION
 - speciaal gratis aanbod tijdens covid-19 uitbraak   
 - webinar   
 - verschillende inzichten, tips en lichaamsoefeningen om je immuniteit te versterken 
-- wordt verschillende keren herhaald: dindagavond 21/4 om 19u; donderdagavond 30/4 om 19u; ... tot zolang covid-19 maatregelen gelden   
+- wordt verschillende keren herhaald: dindagavond 21/4 om 19u; donderdagavond 30/4, 7 mei en 14 mei telkens om 19u.
 
 
 **VERSTERK JE GEZONDHEID**   
