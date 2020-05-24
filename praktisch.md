@@ -18,12 +18,12 @@ Vervolgsessies:
 90 min - 90 euro 
 
 Shiatsu stoel nek-, schouders-, rugmassage:   
-30 min - 35 euro
+30 min - 40 euro
 
 Voetreflexologie:   
 45 min - 50 euro  
-60 min - 60 euro  
-75 min - 75 euro
+60 min - 65 euro  
+75 min - 80 euro
 
 Reiki:   
 60 min - 60 euro  
