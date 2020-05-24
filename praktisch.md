@@ -7,8 +7,8 @@ menu: praktisch
 ### Voor Particulieren:
 ### Prijslijst:
  
-Stress coaching & lichaamswerk
-(eerste keer is met intake gesprek)
+Stress coaching & lichaamswerk   
+(eerste keer is met intake gesprek)   
 60 min - 60 euro  
 75 min - 75 euro   
 90 min - 90 euro 
