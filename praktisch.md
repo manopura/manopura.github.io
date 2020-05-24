@@ -7,7 +7,7 @@ menu: praktisch
 ### Voor Particulieren:
 ### Prijslijst:
  
-Eerste sessie met intake gesprek    
+Eerste sessie (stress coaching & lichaamswerk) met intake gesprek    
 afhankelijk van de duur:   
 60 min - 60 euro   
 90 min - 90 euro
