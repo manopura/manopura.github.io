@@ -13,7 +13,7 @@ Deze wierook wordt vooral ingezet bij Feng Shui correcties.
 
 **Witte salie** is zeer goed om je eigen energie en die van je huis mee te zuiveren, wanneer je je moe of leeg voelt.
 
-Er zijn verschillende wierookhouders en oliebranders voor handen.
+Er zijn verschillende wierook**houders** en olie**branders** voor handen.
 
 **Minerale gesteenten** helpen tijdens meditatie, of ondersteunen verder je energie op verschillende niveaus.
 
