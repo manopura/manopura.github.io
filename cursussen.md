@@ -42,7 +42,7 @@ KOM TOT RUST - FULL VERSION
 - mix van theorie met praktische lichaamsoefeningen
 - gebaseerd op de Oosterse 5 elementen leer en shiatsu principes  
 - vele bruikbare tips en handige oefeningen voo dagelijks gebruik  
-- face2face: 6 zaterdagen; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 780 euro voor het pakket van 6 lessen; 150 euro per losse lesdag.   
+- face2face: 6 zaterdagen 10-16u; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 780 euro voor het pakket van 6 lessen; 150 euro per losse lesdag.   
 - online: 12 maandagavonden 20-21u30; start vanaf 7 september 2020; elke 2 weken; 580 euro voor het pakket van 12 lessen; 50 euro per losse les. Data: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21   
 
 
