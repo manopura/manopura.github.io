@@ -4,7 +4,9 @@ menu: cursussen
 ---
 # Cursussen
 
-**KOM TOT RUST** sessies      
+**KOM TOT RUST** sessies 
+
+
 KOM TOT RUST - LIGHT VERSION   
 - specifiek voor wie last heeft met onrust, angst, onzekerheid tijdens deze covid-19 uitbraak   
 - lichaamsoefeningen en geestelijke oefeningen om de rust te leren opzoeken en bewaren   
@@ -39,9 +41,9 @@ KOM TOT RUST - FULL VERSION
 - niet alleen inzichten en oefeningen voor het immuunsysteem, maar voor de algehele gezondheid   
 - mix van theorie met praktische lichaamsoefeningen
 - gebaseerd op de Oosterse 5 elementen leer en shiatsu principes  
-- vele bruikbare tips en handige oefeningen   
+- vele bruikbare tips en handige oefeningen voo dagelijks gebruik  
 - face2face: 6 zaterdagen; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 780 euro voor het pakket van 6 lessen; 150 euro per losse lesdag.   
-- online: 12 dinsdagavonden 19-21u30; start vanaf 8 september 2020; elke 2 weken; 600 euro voor het pakket van 12 lessen; 60 euro per losse les. Data: 8/9, 22/9, 6/10, 20/10, 10/11, 24/11, 8/12, 22/12, 12/1/21, 26/1/21, 9/2/21, 23/2/21   
+- online: 12 maandagavonden 20-21u30; start vanaf 7 september 2020; elke 2 weken; 580 euro voor het pakket van 12 lessen; 50 euro per losse les. Data: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21   
 
 
 
