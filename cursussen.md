@@ -31,7 +31,7 @@ Sinds corona weten we dat ons immuunsysteem van cruciaal belang is om ons gezond
 - webinar (online)   
 - verschillende inzichten, tips en lichaamsoefeningen om je immuniteit te versterken 
 - maandelijks op dindagavond 19u-20u30: 22/9, 20/10, 17/11, 15/12
-- kostprijs 40€
+- kostprijs 35€
 
 
 **VERSTERK JE GEZONDHEID**   
@@ -41,7 +41,7 @@ Deze cursus gaat veel verder en dieper door dan het webinar rond het immuunsyste
 - deze cursus zorgt ervoor dat je degelijk gewapend bent tegen ziekte-aanvallen  
 - mix van theorie met praktische lichaamsoefeningen
 - gebaseerd op de Oosterse 5 elementen leer en shiatsu principes  
-- zeer veel bruikbare tips en handige oefeningen voo dagelijks gebruik  
+- zeer veel bruikbare tips en handige oefeningen voor dagelijks gebruik  
 
 Ik bied de cursus zowel face2face aan, dat wil zeggen life in de praktijkruimte van Manopura; 
 Voor wie liever online volgt, is er de gelijklopende online cursus, waar wel iets minder diep op alles zal ingegaan worden om de schermtijd te beperken en de aandacht levendig te houden.
