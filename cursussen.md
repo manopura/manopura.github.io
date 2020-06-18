@@ -38,10 +38,10 @@ Sinds corona weten we dat ons immuunsysteem van cruciaal belang is om ons gezond
 
 Deze cursus gaat veel verder en dieper door dan het webinar rond het immuunsysteem. Alle lagen van een goede gezondheid komen aan bod: voeding, ontspanning, lichaamsoefeningen, inzichten,... Een goede gezondheid is immers onbetaalbaar, en je kan er zelf heel veel aan doen!   
 
-- deze cursus zorgt ervoor dat je degelijk gewapend bent tegen ziekte-aanvallen  
-- mix van theorie met praktische lichaamsoefeningen
+- deze cursus zorgt ervoor dat jezelf het heft in handen neemt qua gezondheid en energie. Je leert waar je zwakke punten zitten en hoe je ze kan versterken. Je leert waar je sterke punten zitten en hoe je ze bewust kan inschakelen.
+- boeiende mix van theorie met veel praktische lichaamsoefeningen die je thuis gemakkelijk kan herhalen
 - gebaseerd op de Oosterse 5 elementen leer en shiatsu principes  
-- zeer veel bruikbare tips en handige oefeningen voor dagelijks gebruik  
+- zeer veel bruikbare tips 
 
 Ik bied de cursus zowel face2face aan, dat wil zeggen life in de praktijkruimte van Manopura; 
 Voor wie liever online volgt, is er de gelijklopende online cursus, waar wel iets minder diep op alles zal ingegaan worden om de schermtijd te beperken en de aandacht levendig te houden.
