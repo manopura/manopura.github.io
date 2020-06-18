@@ -10,18 +10,19 @@ Sinds corona of door andere oorzaken die stress-gerelateerd zijn, zijn veel mens
 
 De 3 delen werken door op 3 niveaus: hoofd, hart, hara (=Japans woord voor buik)  
 
-Er zijn dus 10 lessen rond mentale onrust (hoofd, ego);    
+Er zijn 10 lessen rond mentale onrust (hoofd, ego);    
 10 lessen rond emotionele onrust (hart),    
-10 lessen rond het leren vertrouwen op intuitie en het (her)ontdekken van je eigen creatieve kracht (hara).      
+10 lessen rond het leren vertrouwen op intuitie en het (her)ontdekken van je eigen creatieve kracht (hara).     
+
 Je schrijft je in per deel.    
 Het is aangeraden de 10 lessen van een deel in zijn totaliteit te volgen omdat ze opbouwend werken.    
 Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer dat deel herhaald wordt.  
 
 - online of face2face
-- start bij elk nieuw schooljaar; nieuwe reeks voorzien vanaf 7 september 2020
+- start bij elk nieuw schooljaar; nieuwe reeks start 7 september 2020
 - elke maandagavond 19-20u, behalve tijdens schoolvakanties   
 - 10€ per les; 100€ per deel
-- 30 weken voor de 3 delen = jaartraject   
+- 30 weken voor de 3 delen = jaartraject (deel 1 start 7 sept 2020; deel 2 start 7 dec 2020; deel 3 start 15 maart 2021) 
 
 
 **BOOST JE IMMUUNSYSTEEM**   
