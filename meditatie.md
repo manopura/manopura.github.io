@@ -29,7 +29,7 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 
 Er zijn 2 mogelijkheden:    
 
-1) voor wie nog helemaal geen ervaring heeft met mediteren, is er de "Kom tot rust" serie in 3 delen. Zie ook http://www.manopura.be/cursussen.html
+1) voor wie nog helemaal geen ervaring heeft met mediteren, is er de "Kom tot rust" serie in 3 delen. Zie ook [cursussen] (http://www.manopura.be/cursussen.html)
 
   * 1 uurtje in de week oefenen, life in de praktijkruimte of online
   * een inleiding met duiding en uitleg telkens over een ander facet van wat onrust creëert en hoe je ermee om kan gaan
@@ -45,7 +45,7 @@ Er zijn 2 mogelijkheden:
 
 Elke les kost 10€.
 
-**Registreren noodzakelijk**: via de Facebook pagina van Manopura 
+**Registreren noodzakelijk**: via [**Facebook**](https://www.facebook.com/manopura)
 of stuur ons een [mailtje](mailto:marian@manopura.be)
 
 
