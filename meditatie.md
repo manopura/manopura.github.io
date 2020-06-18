@@ -45,8 +45,7 @@ Er zijn 2 mogelijkheden:
 
 Elke les kost 10€.
 
-**Registreren noodzakelijk**: via de Facebook pagina van Manopura https://www.facebook.com/pg/manopura/events/?ref=page_internal
-
+**Registreren noodzakelijk**: via de Facebook pagina van Manopura 
 of stuur ons een [mailtje](mailto:marian@manopura.be)
 
 
