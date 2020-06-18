@@ -26,18 +26,24 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 
 
 **Wat houdt het in?**
-* 1 uurtje in de week samen komen, in een groepje van maximaal 10 personen
-* een inleiding met duiding en uitleg telkens over een ander facet van mediteren
-* de meditatie zelf die begeleid wordt, stap voor stap
-* nabespreking, bij een heerlijk vers kopje thee
-* wekelijkse oefening zelfde dag zelfde uur.
 
-**Praktisch**
-* Wekelijks, behalve tijdens schoolvakanties, om **20u00** in de praktijkruimte van Manopura in Wetteren 
-* 10 euro per les
-* Mogelijkheid om een 10-beurtenkaart aan te schaffen (95€ -> 5€ korting!) 
-* Wie meditatie kussens, poef, matje heeft, mag die meebrengen. Er is zowiezo wel een poef en een matje voorzien.
-* Focus deel 3 "Hara": hoe omgaan met het 'buikgevoel', je intuitie, je eigen creatieve scheppende kracht
+Er zijn 2 mogelijkheden:    
+
+1) voor wie nog helemaal geen ervaring heeft met mediteren, is er de "Kom tot rust" serie in 3 delen. Zie ook http://www.manopura.be/cursussen.html
+
+  * 1 uurtje in de week oefenen, life in de praktijkruimte of online
+  * een inleiding met duiding en uitleg telkens over een ander facet van wat onrust creëert en hoe je ermee om kan gaan
+  * de meditatie zelf die begeleid wordt, stap voor stap
+  * nabespreking van de ervaringen
+  * maandagavonden 19-20u, behalve tijdens schoolvakanties
+  
+2) voor wie de "Kom tot rust" serie reeds gevolgd heeft, of voor wie reeds voldoende meditatie ervaring heeft
+  * 1 uurtje in de week oefenen, life in de praktijkruimte of online
+  * eerste half uur 'meditatie in beweging' met verschillende QiGong oefeningen
+  * tweede half uur ofwel geleide meditatie ofwel stilte meditatie
+  * woensdagavonden 20-21u, behalve tijdens schoolvakanties
+
+Elke les kost 10€.
 
 **Registreren noodzakelijk**: via de Facebook pagina van Manopura https://www.facebook.com/pg/manopura/events/?ref=page_internal
 
