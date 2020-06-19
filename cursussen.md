@@ -8,11 +8,27 @@ menu: cursussen
 
 Sinds corona of door andere oorzaken die stress-gerelateerd zijn, zijn veel mensen op zoek naar rust. Deze 3 delige cursus helpt inzicht te krijgen in wat je precies bezig houdt en hoe je eraan kan verhelpen. 
 
-De 3 delen werken door op 3 niveaus: hoofd, hart, hara (=Japans woord voor buik)  
+Deze cursus bestaat uit 3 delen: HOOFD, HART, HARA.
+Je komt pas volledit tot rust, als je aangeleerd hebt dat er 2 'stemmen' zijn in je systeem die je het knap lastig kunnen maken: die van je hoofd (ego) en die van het hart (emo).   
+Eens je kennis hebt gemaakt met wat je hoofd op hol brengt, en welke terugkerende belastende emoties je meedraagt, is de weg open voor de derde 'stem', de meest stille van de 3, je eigen stiltestem.
 
-Er zijn 10 lessen rond mentale onrust (hoofd, ego);    
-10 lessen rond emotionele onrust (hart),    
-10 lessen rond het leren vertrouwen op intuitie en het (her)ontdekken van je eigen creatieve kracht (hara).     
+DEEL 1 HOOFD
+Hier wordt specifiek ingezoemd op alles wat je kopzorgen bezorgd. Je leert de brulaap in je hoofd kennen die onophoudelijk gedachten produceert en je bezig houdt, zelfs onrustig maakt of niet laat slapen.   
+Alles wat mentale processen zijn of reacties van het ego worden onder de loep genomen.   
+Zo leer je beter begrijpen hoe die denkprocessen verlopen en hoe je ze tot bedaren kan brengen, zodat je meer ruimte en rust in je hoofd kan ervaren en openkomt voor de leegte waar de intuïtie te horen is.    
+Want wees maar zeker dat je ego je vaak onderuit wil halen in twijfels en alles zal platredeneren wat je eventueel intuïtief aanvoelt.   
+
+DEEL 2 HART
+Dit gedeelte kan je pas volgen, wanneer je de 10 lessen van Deel 1 afgewerkt hebt.    
+Hier wordt specifiek ingezoemd op alles wat je aan emoties belet om tot leegte, tot stilte te komen. Vaak is angst (vanuit het ego) de boosdoener waardoor je niet verder durft te gaan. Je kan het vergelijken met een kind dat vraagt de slaapkamerdeur open te laten en het licht in de gang te laten branden, uit schrik voor het donker van de nacht. Je leert aan dit te herkennen en wanneer emoties opkomen, om ze te verzachten zodat ze je niet gaan overmeesteren.  
+(*Disclaimer: mensen met psychische kwetsbaarheden vragen beter ondersteuning bij een psycholoog of psychiater)*
+
+DEEL 3 HARA
+Hara is het Japanse woord voor buik, jouw levenskracht, evenwicht, buikgevoel.
+Je start met dit deel als je deel2 hebt afgerond.   
+Hier leer je dan aan hoe de stem van het buikgevoel gericht op te zoeken, te raadplegen, te gebruiken. 
+Er worden verschillende oefeningen en manieren aangeboden, zodat je kan verkennen wat bij jou het beste werkt.
+   
 
 Je schrijft je in per deel.    
 Het is aangeraden de 10 lessen van een deel in zijn totaliteit te volgen omdat ze opbouwend werken.    
