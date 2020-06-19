@@ -10,7 +10,7 @@ Sinds corona of door andere oorzaken die stress-gerelateerd zijn, zijn veel mens
 
 Deze cursus bestaat uit 3 delen: HOOFD, HART, HARA.   
 Je komt pas volledit tot rust, als je aangeleerd hebt dat er 2 'stemmen' zijn in je systeem die je het knap lastig kunnen maken: die van je hoofd (ego) en die van het hart (emo).   
-Eens je kennis hebt gemaakt met wat je hoofd op hol brengt, en welke terugkerende belastende emoties je meedraagt, is de weg open voor de derde 'stem', de meest stille van de 3, je eigen stiltestem.
+Eens je kennis hebt gemaakt met wat je hoofd op hol brengt, en welke terugkerende belastende emoties je meedraagt, is de weg open voor de derde 'stem', de meest stille van de 3: je eigen stiltestem.
 
 DEEL 1 HOOFD   
 Hier wordt specifiek ingezoemd op alles wat je kopzorgen bezorgd. Je leert de brulaap in je hoofd kennen die onophoudelijk gedachten produceert en je bezig houdt, zelfs onrustig maakt of niet laat slapen.   
