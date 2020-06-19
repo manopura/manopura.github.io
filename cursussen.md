@@ -36,9 +36,9 @@ Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer
 
 - online of face2face
 - start bij elk nieuw schooljaar; nieuwe reeks start 7 september 2020
-- elke maandagavond 19-20u, behalve tijdens schoolvakanties   
+- elke woensdagavond 18:45u-19:45u, behalve tijdens schoolvakanties   
 - 10€ per les; 100€ per deel
-- 30 weken voor de 3 delen = jaartraject (deel 1 start 7 sept 2020; deel 2 start 7 dec 2020; deel 3 start 15 maart 2021) 
+- 30 weken voor de 3 delen = jaartraject (deel 1 start 9 sept 2020; deel 2 start 9 dec 2020; deel 3 start 17 maart 2021) 
 
 
 **BOOST JE IMMUUNSYSTEEM**   
@@ -65,7 +65,7 @@ Voor wie liever online volgt, is er de gelijklopende online cursus, waar wel iet
 
 - face2face: 6 zaterdagen 10-16u; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 780 euro voor het pakket van 6 lessen; 150 euro per losse lesdag.  
 
-- online: 12 maandagavonden 20-21u30; start vanaf 7 september 2020; elke 2 weken; 580 euro voor het pakket van 12 lessen; 50 euro per losse les. Data: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21   
+- online: 12 maandagavonden 19u-20u30; start vanaf 7 september 2020; elke 2 weken; 580 euro voor het pakket van 12 lessen; 50 euro per losse les. Data: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21   
 
 
 
