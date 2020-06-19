@@ -35,13 +35,13 @@ Er zijn 2 mogelijkheden:
   * een inleiding met duiding en uitleg telkens over een ander facet van wat onrust creëert en hoe je ermee om kan gaan
   * de meditatie zelf die begeleid wordt, stap voor stap
   * nabespreking van de ervaringen
-  * maandagavonden 19-20u, behalve tijdens schoolvakanties
+  * woensdagavonden 18:45u-19:45u, behalve tijdens schoolvakanties
   
 2) voor wie de "Kom tot rust" serie reeds gevolgd heeft, of voor wie reeds voldoende meditatie ervaring heeft
   * 1 uurtje in de week oefenen, life in de praktijkruimte of online
   * eerste half uur 'meditatie in beweging' met verschillende QiGong oefeningen
   * tweede half uur ofwel geleide meditatie ofwel stilte meditatie
-  * woensdagavonden 20-21u, behalve tijdens schoolvakanties
+  * woensdagavonden 20:15u-21:15u, behalve tijdens schoolvakanties
 
 Elke les kost 10€.
 
