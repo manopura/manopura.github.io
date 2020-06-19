@@ -8,7 +8,7 @@ menu: cursussen
 
 Sinds corona of door andere oorzaken die stress-gerelateerd zijn, zijn veel mensen op zoek naar rust. Deze 3 delige cursus helpt inzicht te krijgen in wat je precies bezig houdt en hoe je eraan kan verhelpen. 
 
-Deze cursus bestaat uit 3 delen: HOOFD, HART, HARA.
+Deze cursus bestaat uit 3 delen: HOOFD, HART, HARA.   
 Je komt pas volledit tot rust, als je aangeleerd hebt dat er 2 'stemmen' zijn in je systeem die je het knap lastig kunnen maken: die van je hoofd (ego) en die van het hart (emo).   
 Eens je kennis hebt gemaakt met wat je hoofd op hol brengt, en welke terugkerende belastende emoties je meedraagt, is de weg open voor de derde 'stem', de meest stille van de 3, je eigen stiltestem.
 
