@@ -63,9 +63,9 @@ Deze cursus gaat veel verder en dieper door dan het webinar rond het immuunsyste
 Ik bied de cursus zowel face2face aan, dat wil zeggen life in de praktijkruimte van Manopura; 
 Voor wie liever online volgt, is er de gelijklopende online cursus, waar wel iets minder diep op alles zal ingegaan worden om de schermtijd te beperken en de aandacht levendig te houden.
 
-- face2face: 6 zaterdagen 10-16u; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 780 euro voor het pakket van 6 lessen; 150 euro per losse lesdag.  
+face2face: 6 zaterdagen 10u-16u; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 870 euro voor het pakket van 6 zaterdagen; 150 euro per losse lesdag.
 
-- online: 12 maandagavonden 19u-20u30; start vanaf 7 september 2020; elke 2 weken; 580 euro voor het pakket van 12 lessen; 50 euro per losse les. Data: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21   
+online: 12 maandagavonden 19u-21u; start vanaf 7 september 2020; elke 2 weken; 690 euro voor het pakket van 12 lessen; 60 euro per losse les van 2 uur. Data: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21
 
 
 
