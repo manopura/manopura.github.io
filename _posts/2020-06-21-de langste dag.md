@@ -29,7 +29,7 @@ Wil je al deze krachten en energieën leren kennen om ze concreet in te zetten? 
 
 Schrijf je in voor deze kracht-training (met veel zachtheid) die start in september! Zo blijf je gezond  en sterk een heel jaar door!
 
-[**Versterk je gezondheid**](http://www.manopura.be/cursussen.html)
+Meer info: [**Versterk je gezondheid**](http://www.manopura.be/cursussen.html)
   
 
 
