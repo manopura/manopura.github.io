@@ -60,7 +60,7 @@ Deze cursus gaat veel verder en dieper door dan het webinar rond het immuunsyste
 - deze cursus zorgt ervoor dat jezelf het heft in handen neemt qua gezondheid en energie. Je leert waar je zwakke punten zitten en hoe je ze kan versterken. Je leert waar je sterke punten zitten en hoe je ze bewust kan inschakelen.
 - boeiende mix van theorie met veel praktische lichaamsoefeningen die je thuis gemakkelijk kan herhalen
 - gebaseerd op de Oosterse 5 elementen leer en shiatsu principes  
-- zeer veel bruikbare tips 
+- een absolute must als je gezondheid je lief is, en je preventief wil werken! 
 
 Ik bied de cursus zowel face2face aan, dat wil zeggen life in de praktijkruimte van Manopura; 
 Voor wie liever online volgt, is er de gelijklopende online cursus, waar wel iets minder diep op alles zal ingegaan worden om de schermtijd te beperken en de aandacht levendig te houden.
