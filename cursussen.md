@@ -40,6 +40,7 @@ Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer
 - 10€ per les; 100€ per deel
 - 30 weken voor de 3 delen = jaartraject (deel 1 start 9 sept 2020; deel 2 start 9 dec 2020; deel 3 start 17 maart 2021) 
 
+---
 
 **BOOST JE IMMUUNSYSTEEM**   
 
@@ -50,6 +51,7 @@ Sinds corona weten we dat ons immuunsysteem van cruciaal belang is om ons gezond
 - maandelijks op dindagavond 19u-20u30: 22/9, 20/10, 17/11, 15/12
 - kostprijs 35€
 
+---
 
 **VERSTERK JE GEZONDHEID**   
 
