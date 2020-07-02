@@ -37,8 +37,9 @@ Volledige lichaamsbehandeling: 60 minuten - 80 euro
 
 Meditatie (groepsles):   
 60 min - 10 euro per persoon  
-10 beurten kaart: 95 euro  
 Gelieve uw aanwezigheid te bevestigen op marian@manopura.be 
+
+Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
 
 
 ### Praktisch  
