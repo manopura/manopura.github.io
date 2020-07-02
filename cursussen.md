@@ -69,7 +69,7 @@ face2face: 6 zaterdagen 10u-16u; start vanaf september 2020; 1 zaterdag per maan
 kostprijs: 870 euro voor het pakket van 6 zaterdagen; 150 euro per losse lesdag.
 
 online: 12 maandagavonden 19u-21u; start vanaf 7 september 2020; elke 2 weken: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21      
-690 euro voor het pakket van 12 lessen; 60 euro per losse les van 2 uur.   
+kostprijs: 690 euro voor het pakket van 12 lessen; 60 euro per losse les van 2 uur.   
    
 
 
