@@ -46,8 +46,7 @@ Voor meer uitleg daarover, zie ook [**cursussen**](http://www.manopura.be/cursus
 
 Elke les kost 10€.
 
-**Registreren noodzakelijk**: via [**Facebook**](https://www.facebook.com/manopura)
-of stuur ons een [mailtje](mailto:marian@manopura.be)
+**Registreren noodzakelijk**: stuur ons een [mailtje](mailto:marian@manopura.be)
 
 
 ---
