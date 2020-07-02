@@ -30,7 +30,7 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 Er zijn 2 mogelijkheden:    
 
 1) voor wie nog helemaal geen ervaring heeft met mediteren, is er de "Kom tot rust" serie in 3 delen. 
-Zie ook [**cursussen**](http://www.manopura.be/cursussen.html)
+Voor meer uitleg daarover, zie ook [**cursussen**](http://www.manopura.be/cursussen.html)
 
   * 1 uurtje in de week oefenen, life in de praktijkruimte of online
   * een inleiding met duiding en uitleg telkens over een ander facet van wat onrust creëert en hoe je ermee om kan gaan
