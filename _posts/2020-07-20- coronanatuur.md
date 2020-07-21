@@ -49,7 +49,7 @@ Voor amper een paar kilo goud, wordt een deel van het Amazonewoud in Ecuador ver
 
 Wat in de Amazone gebeurt, gebeurt overal. Alles gaat kapot, voor geld. Je maakt je eigen huis kapot, voor geld. Wat ga jij met dat geld kopen als alles vergiftigd is?   
 
-Dus dit moet keren. Ik heb geen andere keuze dan je lam te leggen. Ik spiegel wat jij doet: jíj legt alles lam.   
+Dus dit moet keren. Ik heb geen andere keuze dan je lam te leggen. Ik spiegel wat jij doet: jíj legt alles lam. Jij gaat driest te keer, ik nu ook.    
 En waar gaat de aandacht naartoe, eens je lam ligt? juist: naar zorg, naar medemenselijkheid, samenhorigheid, verbondenheid, zachtheid, tederheid, liefde. Ik toon je op mijn manier wat de waarden zijn die deze planeet nodig heeft om verder verval tegen te gaan.    
 
 Wat als je nu eens i.p.v. massaal ‘geld’ na te jagen, zou beginnen met te leven in ‘verbondenheid’? iedereen heeft iedereen nodig. En jij hebt de natuur nodig. Zonder mij ben je niets, ben je dood.    
