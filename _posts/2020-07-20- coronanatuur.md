@@ -2,7 +2,7 @@
 layout: blog
 title:  "De symboliek van corona"
 date:   2020-07-20
-tags: [intuïtie,bewustwording, kritisch]
+tags: [intuïtie,bewustzijn, kritisch]
 ---
 
 
