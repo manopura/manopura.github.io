@@ -55,6 +55,8 @@ Sinds corona weten we dat ons immuunsysteem van cruciaal belang is om ons gezond
 
 **BLIJF GEZOND - VERSTERK JE GEZONDHEID**   
 
+Bekijk het fimpje over deze cursus op mijn Facebook pagina: https://www.facebook.com/manopura/videos/594669514493290/
+
 Deze cursus gaat veel verder en dieper door dan het webinar rond het immuunsysteem. Alle lagen van een goede gezondheid komen aan bod: voeding, ontspanning, lichaamsoefeningen, inzichten,... Een goede gezondheid is immers onbetaalbaar, en je kan er zelf heel veel aan doen!   
 
 - deze cursus zorgt ervoor dat jezelf het heft in handen neemt qua gezondheid en energie. Je leert waar je zwakke punten zitten en hoe je ze kan versterken. Je leert waar je sterke punten zitten en hoe je ze bewust kan inschakelen.
