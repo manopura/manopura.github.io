@@ -49,7 +49,7 @@ Bekijk het [**filmpje**](https://www.facebook.com/manopura/videos/76283482779936
 Deze cursus is het vervolg op de vorige Kom tot Rust. 
 
 In deze cursus ligt de nadruk op lichamelijke en geestelijke oefeningen, minder op onderricht in het algemeen. 
-We starten met een half uur lichaamsoefeningen, traag, verstillend, verrijkend, energie-gevend. De oefeningen zijn gebaseerd op QiGong en Shiatsu, de 5 elementen leer. De oefeningen zelf worden zeer uitgebreid besproken; het gaat niet alleen om het fysiek uitvoeren ervan, maar van het begrijpen wat er precies gebeurt wanneer je ze toepast.      
+We starten met een half uur lichaamsoefeningen, traag, verstillend, verrijkend, energie-gevend. De oefeningen zijn gebaseerd op QiGong en Shiatsu, de 5 elementen leer. De oefeningen zelf worden zeer uitgebreid besproken; het gaat niet alleen om het fysiek uitvoeren ervan, maar van het begrijpen wat er precies gebeurt wanneer je ze toepast. Daardoor verkrijg je een ruimer lichaamsbewustzijn en innerlijk aanvoelen.      
 
 Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het thema herfst komen aan bod: grenzen leren stellen, grenzen laten respecteren, vertrouwen opbouwen, ruimte leren innemen, omgaan met verdriet, etc etc.   
 
