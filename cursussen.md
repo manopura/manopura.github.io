@@ -34,7 +34,7 @@ Je schrijft je in per deel.
 Het is aangeraden de 10 lessen van een deel in zijn totaliteit te volgen omdat ze opbouwend werken.    
 Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer dat deel herhaald wordt.  
 
-- online of face2face
+- online of offline
 - start bij elk nieuw schooljaar; nieuwe reeks start 9 september 2020
 - elke woensdagavond 18:45u-19:45u, behalve tijdens schoolvakanties   
 - 10€ per les; 100€ per deel
@@ -47,10 +47,18 @@ Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer
 Bekijk het [**filmpje**](https://www.facebook.com/manopura/videos/762834827799364/) hierover op de Facebookpagina.    
 
 Deze cursus is het vervolg op de vorige Kom tot Rust. 
+
 In deze cursus ligt de nadruk op lichamelijke en geestelijke oefeningen, minder op onderricht in het algemeen. 
 We starten met een half uur lichaamsoefeningen, traag, verstillend, verrijkend, energie-gevend. De oefeningen zijn gebaseerd op QiGong en Shiatsu, de 5 elementen leer. De oefeningen zelf worden zeer uitgebreid besproken; het gaat niet alleen om het fysiek uitvoeren ervan, maar van het begrijpen wat er precies gebeurt wanneer je ze toepast.      
+
 Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het thema herfst komen aan bod: grenzen leren stellen, grenzen laten respecteren, vertrouwen opbouwen, ruimte leren innemen, omgaan met verdriet, etc etc.   
+
 Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te hebben.    
+
+- online of offline
+- start bij elk nieuw schooljaar; nieuwe reeks start 9 september 2020
+- elke woensdagavond 20:15u-21:15u, behalve tijdens schoolvakanties   
+- 10€ per les; 10 beurtenkaart mogelijk aan 95€.   
 
 ---
 
