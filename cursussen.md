@@ -85,6 +85,15 @@ Deze cursus gaat veel verder en dieper door dan het webinar rond het immuunsyste
 - gebaseerd op de Oosterse 5 elementen leer en shiatsu principes  
 - een absolute must als je gezondheid je lief is, en je preventief wil werken! 
 
+We volgen het ritme van de seizoenen, want de natuur is onze basiskracht.       
+Een greep uit de thema's:   
+
+**Nazomer**: oogsten wat we zaaiden. Leren aarden bij te grote bezorgdheid.   
+**Herfst**: leren loslaten; hoe werkt de dikke darm en hoe houden we die gezond?   
+**Winter**: naar binnen keren en leren rusten. Wat als er angst komt in de donkerste winternachten?    
+**Lente**: nieuwe plannen uitwerken; leren ontgiften na de winter, grote schoonmaak van het lichaam   
+**Zomer**: durven in volle expansie staan en genieten; je lichaamstemperatuur onder de loupe. Je hart als motor.   
+
 Ik bied de cursus zowel online als offline aan. Offline is fysiek, in de praktijkruimte van Manopura.
 Voor wie liever online volgt, is er de gelijklopende online cursus, waar wel iets minder diep op alles zal ingegaan worden om de schermtijd te beperken en de aandacht levendig te houden.
 
