@@ -42,6 +42,19 @@ Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer
 
 ---
 
+**KOM TOT RUST - GEVORDERDEN**   
+
+Bekijk het [**filmpje**](https://www.facebook.com/manopura/videos/762834827799364/) hierover op de Facebookpagina.    
+
+Deze cursus is het vervolg op de vorige Kom tot Rust. 
+In deze cursus ligt de nadruk op lichamelijke en geestelijke oefeningen, minder op onderricht in het algemeen. 
+We starten met een half uur lichaamsoefeningen, traag, verstillend, verrijkend, energie-gevend. De oefeningen zijn gebaseerd op QiGong en Shiatsu, de 5 elementen leer. De oefeningen zelf worden zeer uitgebreid besproken; het gaat niet alleen om het fysiek uitvoeren ervan, maar van het begrijpen wat er precies gebeurt wanneer je ze toepast.      
+Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het thema herfst komen aan bod: grenzen leren stellen, grenzen laten respecteren, vertrouwen opbouwen, ruimte leren innemen, omgaan met verdriet, etc etc.   
+Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te hebben.    
+
+---
+
+
 **BOOST JE IMMUUNSYSTEEM**   
 
 Sinds corona weten we dat ons immuunsysteem van cruciaal belang is om ons gezond te houden. Dit webinar van 1,5 uur legt klaar en duidelijk uit wat een immuunsysteem is, welke pijlers er zijn voor het onderhouden van een goede gezondheid; je krijgt vele praktische tips en makkelijke oefeningen die je thuis kan doen, om zo je immuunsysteem op peil te houden.
