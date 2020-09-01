@@ -16,8 +16,8 @@ Stress coaching & Shiatsu behandeling
 Shiatsu stoel nek-, schouders-, rugmassage:   
 30 min - 40 euro
 
-Shiatsu ontspanningsmassage (zonder analyse, zonder intake)
-45 min - 50 euro
+Shiatsu ontspanningsmassage (zonder analyse, zonder intake)   
+45 min - 50 euro   
 
 Voetreflexologie:   
 45 min - 50 euro  
