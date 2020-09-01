@@ -7,7 +7,7 @@ menu: praktisch
 ### Voor Particulieren:
 ### Prijslijst:
  
-Stress coaching & lichaamswerk   
+Stress coaching & Shiatsu behandeling    
 (eerste keer is met intake gesprek)   
 60 min - 60 euro  
 75 min - 75 euro   
@@ -15,6 +15,9 @@ Stress coaching & lichaamswerk
 
 Shiatsu stoel nek-, schouders-, rugmassage:   
 30 min - 40 euro
+
+Shiatsu ontspanningsmassage (zonder analyse, zonder intake)
+45 min - 50 euro
 
 Voetreflexologie:   
 45 min - 50 euro  
