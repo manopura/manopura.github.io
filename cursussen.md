@@ -97,13 +97,12 @@ Een greep uit de thema's:
 Ik bied de cursus zowel online als offline aan. Offline is fysiek, in de praktijkruimte van Manopura.
 Voor wie liever online volgt, is er de gelijklopende online cursus, waar wel iets minder diep op alles zal ingegaan worden om de schermtijd te beperken en de aandacht levendig te houden.
 
-offline: 6 zaterdagen 10u-16u; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21;    
-kostprijs: 870 euro voor het pakket van 6 zaterdagen; 150 euro per losse lesdag.
+offline: 6 zaterdagen 10u-16u; start vanaf 26 september 2020; 1 zaterdag per maand: 26/9, 24/10, 14/11, 12/12, 23/1/21, 20/2/21;    
+kostprijs: 695 euro voor het pakket van 6 zaterdagen; 120 euro per losse lesdag.
 
-online: 12 maandagavonden 19u-21u; start vanaf 7 september 2020; elke 2 weken: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21      
-kostprijs: 690 euro voor het pakket van 12 lessen; 60 euro per losse les van 2 uur.   
-
-**!!! EARLY BIRD PROMOTIE!!!** : wie inschrijft voor het hele traject, dus de 6 zaterdagen of de 12 maandagavonden, geniet tot en met 1 september middernacht van een fabuleuze korting van **70€**!!! Voor wie zijn gezondheid serieus neemt, en goed gewapend de winter wil doorkomen!   
+online: 9 maandagavonden 19u-21u30; start vanaf 28 september 2020; 1 avond per maand: 28/9, 26/10, 16/11, 14/12, 25/1/21, 22/2/21, 29/3, 19/4/21, 17/5/21.   
+kostprijs: 565 euro voor het pakket van 9 lessen; 65 euro per losse les van 2,5 uur.   
+   
    
 
 
