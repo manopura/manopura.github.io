@@ -1,3 +1,10 @@
+---
+layout: blog
+title:  "Kwetsbaarheid en de regel van 3"
+date:   2020-09-19
+tags: [kracht,energie,balans,HSP]
+---
+
 Kwetsbaarheid
 en de regel van 3
 
