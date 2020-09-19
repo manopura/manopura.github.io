@@ -5,8 +5,6 @@ date:   2020-09-19
 tags: [kracht,energie,balans,HSP]
 ---
 
-Kwetsbaarheid
-en de regel van 3
 
 
 Er gebeurt iets met mij de laatste weken. Ik kan het niet vatten. Mijn rationeel denkende brein tracht te achterhalen wat het is - voorlopig tevergeefs. 
@@ -27,7 +25,7 @@ Verbouwen: transformatie, niet alleen van structuren, maar ook van energie. Vast
 En dan was er de nieuwe maan, afgelopen donderdag 13:00u. Nog nooit nam ik die veranderende energie zo waanzinnig scherp waar. Mijn energie voelde loodzwaar tot pakweg de middag. Ik ‘dacht’ dat het de weerbots was van het intensieve trainingsweekend plus de luide verbouwingen, … 
 Als bij wonderlijk intuïtief ‘toeval’ voelde ik de nood mij energetisch te ontdoen van alles wat mij niet meer diende. Ik zuiverde met wierook alle Feng Shui windrichtingen die mijn buren aan het verbouwen zijn, en ik zuiverde mijn hele woning en mezelf met witte salie. … 
 En toen gebeurde er magie. Alle zwaarte was weg. Ik ademde, diep en vrij, ik zag terug dat de zon scheen, en ik voelde me vollopen met een energie die ik nog nooit eerder had waargenomen. Helder, zuiver, zo intens liefdevol en zacht,…. dit moet ‘engelen-energie’ zijn van de bovenste plank… 
-Kan ik daar met mijn rationeel denkend brein verder bij? nee. Maar dat hoeft ook helemaal niet. Ik voel wat er te voelen is, en ook al was het in het begin onwennig, nadien werd het alleen maar zuiverder en krachtiger. ** Transformatie 3**
+Kan ik daar met mijn rationeel denkend brein verder bij? nee. Maar dat hoeft ook helemaal niet. Ik voel wat er te voelen is, en ook al was het in het begin onwennig, nadien werd het alleen maar zuiverder en krachtiger. **Transformatie 3**
 
 Waarom tel ik die 3 zaken eigenlijk op? omdat het getal 3 en 7 voor mij heilig zijn. Ze hebben me al heel mijn leven vanalles te vertellen gehad. En ingrijpende veranderingen komen bij mij altijd met pakketjes van 3…
 om me heel intens de lading en waarde te laten ervaren, doorvoelen. 
