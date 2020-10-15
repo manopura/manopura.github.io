@@ -36,9 +36,9 @@ Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer
 
 - online of offline
 - start bij elk nieuw schooljaar; nieuwe reeks start 9 september 2020
-- elke woensdagavond 18:45u-19:45u, behalve tijdens schoolvakanties   
+- elke donderdagavond 18:45u-19:45u, behalve tijdens schoolvakanties   
 - 10€ per les; 100€ per deel
-- 30 weken voor de 3 delen = jaartraject (deel 1 start 9 sept 2020; deel 2 start 9 dec 2020; deel 3 start 17 maart 2021) 
+- 30 weken voor de 3 delen = jaartraject (deel 1 start 9 sept 2020; deel 2 start 10 dec 2020; deel 3 start 18 maart 2021) 
 
 ---
 
@@ -57,7 +57,7 @@ Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te 
 
 - online of offline
 - start bij elk nieuw schooljaar; nieuwe reeks start 9 september 2020
-- elke woensdagavond 20:15u-21:15u, behalve tijdens schoolvakanties   
+- elke donderdagavond 20:15u-21:15u, behalve tijdens schoolvakanties   
 - 10€ per les; 10 beurtenkaart mogelijk aan 95€.   
 
 ---
