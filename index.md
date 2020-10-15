@@ -4,9 +4,6 @@ menu: welkom
 ---
 ![logo](images/logo.jpg)
 
-**EARLY BIRD PROMOTIE** van **70€** voor de cursus **BLIJF GEZOND**! Alle info onder de rubriek Aanbod/ Cursussen!   
-
-
 # Waar staat Manopura voor?
 
 Mano pura betekent letterlijk in het Italiaans **"zuivere hand"**. 
