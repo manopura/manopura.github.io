@@ -4,6 +4,11 @@ menu: Getuigenissen
 ---
 # Getuigenissen
 
+ik kan wel zeggen dat ik je manier van werken heel goed vind. De dingen worden heel goed uitgelegd en je hebt de gepaste stem en de juiste woorden om de relaxatie heel goed te begeleiden. Mijn innerlijke criticus (lastpost) is al veel vriendelijker geworden voor mij. Ik had nooit gedacht dat ik zo een evolutie zou kunnen doormaken. Je manier van werken is echt wel heel waardevol en ik wil zeker voort komen na dit corona-gedoe. Heel goed ook dat je de sessies opneemt en digitaal ter beschikking stelt. Zo kan je rustgevende stem ook thuis voor de gepaste begeleiding zorgen. 
+
+*Patrick V*
+
+---
 Ik heb de 10-delige meditatiereeks ‘hoofd’ gevolgd.
 Ik was aangenaam verrast door de aanpak van Marian.
 Zij brengt het op een rustige maar gestructureerde manier.
@@ -95,7 +100,7 @@ Een dikke merci Marian voor de manier waarop jij Laura reeds hebt geholpen. Dank
 
 Ondertussen twee maal behandeld door Marian. Ze neemt de tijd om naar u te luisteren en werkt op basis hiervan , buiten de behandeling ook tips hoe je met je lichaam en geest moet omgaan. Een aanrader in dit jachtig bestaan .
 
-*Patrick*
+*Patrick R*
 
 ---
 
