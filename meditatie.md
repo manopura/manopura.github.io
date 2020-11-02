@@ -54,6 +54,8 @@ Elke les kost 10€.
 
 **Enkele reacties van deelnemers**
 
+* Ik kan wel zeggen dat ik je manier van werken heel goed vind. De dingen worden heel goed uitgelegd en je hebt de gepaste stem en de juiste woorden om de relaxatie heel goed te begeleiden. Mijn innerlijke criticus (lastpost) is al veel vriendelijker geworden voor mij. Ik had nooit gedacht dat ik zo een evolutie zou kunnen doormaken. Je manier van werken is echt wel heel waardevol en ik wil zeker voort komen na dit corona-gedoe. Heel goed ook dat je de sessies opneemt en digitaal ter beschikking stelt. Zo kan je rustgevende stem ook thuis voor de gepaste begeleiding zorgen. 
+
 * Ik heb de 10-delige meditatiereeks ‘hoofd’ gevolgd.
 Ik was aangenaam verrast door de aanpak van Marian.
 Zij brengt het op een rustige maar gestructureerde manier.
