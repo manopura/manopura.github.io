@@ -94,14 +94,8 @@ Een greep uit de thema's:
 **Lente**: nieuwe plannen uitwerken; leren ontgiften na de winter, grote schoonmaak van het lichaam   
 **Zomer**: durven in volle expansie staan en genieten; je lichaamstemperatuur onder de loupe. Je hart als motor.   
 
-Ik bied de cursus zowel online als offline aan. Offline is fysiek, in de praktijkruimte van Manopura.
-Voor wie liever online volgt, is er de gelijklopende online cursus, waar wel iets minder diep op alles zal ingegaan worden om de schermtijd te beperken en de aandacht levendig te houden.
 
-offline: 6 zaterdagen 10u-16u; start vanaf 26 september 2020; 1 zaterdag per maand: 26/9, 24/10, 14/11, 12/12, 23/1/21, 20/2/21;    
-kostprijs: 695 euro voor het pakket van 6 zaterdagen; 120 euro per losse lesdag.
-
-online: 9 maandagavonden 19u-21u30; start vanaf 28 september 2020; 1 avond per maand: 28/9, 26/10, 16/11, 14/12, 25/1/21, 22/2/21, 29/3, 19/4/21, 17/5/21.   
-kostprijs: 565 euro voor het pakket van 9 lessen; 65 euro per losse les van 2,5 uur.   
+Deze cursus staat even "on hold" wegens de corona-maatregelen. Het is zeer moeilijk nu data in te plannen omdat fysiek samenzijn in groep niet mag. Weet wel dat wanneer deze lock down weer voorbij is, de cursus vrij snel van start zal gaan. Hou daarom de Manopura Facebook pagina in de gaten!  
    
    
 
