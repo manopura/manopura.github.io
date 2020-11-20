@@ -94,9 +94,11 @@ Een greep uit de thema's:
 **Lente**: nieuwe plannen uitwerken; leren ontgiften na de winter, grote schoonmaak van het lichaam   
 **Zomer**: durven in volle expansie staan en genieten; je lichaamstemperatuur onder de loupe. Je hart als motor.   
 
-De cursus zal door de corona-regels voor het ogenblik opstarten **online**
-Data: 1 zaterdagmorgen per maand van 10-12u: 12/12/20; 9/1/21; 6/2/21; 13/3/21; 10/4/21; 8/5/21
-Kostprijs: 40€ per les. Best lessenpakket in zijn totaliteit te volgen om alles goed te begrijpen.
+De cursus zal door de corona-regels voor het ogenblik opstarten **online**   
+Data: 1 zaterdagmorgen per maand van 10-12u:   
+12/12/20; 9/1/21; 6/2/21; 13/3/21; 10/4/21; 8/5/21   
+Kostprijs: 40€ per les.    
+Best lessenpakket in zijn totaliteit te volgen om alles goed te begrijpen.   
 
 
 Deze cursus **fysiek in groep** staat even "on hold" wegens de corona-maatregelen. Het is zeer moeilijk nu data in te plannen omdat fysiek samenzijn in groep niet mag. Weet wel dat wanneer deze lock down weer voorbij is, de cursus vrij snel van start zal gaan. Hou daarom de Manopura Facebook pagina in de gaten!  
