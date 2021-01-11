@@ -71,8 +71,8 @@ Sinds corona weten we dat ons immuunsysteem van cruciaal belang is om ons gezond
 
 - webinar (online)   
 - verschillende inzichten, tips en lichaamsoefeningen om je immuniteit te versterken 
-- maandelijks op dindagavond 19u-20u30: 11/8, 22/9, 20/10, 17/11 (gratis!), vrijdagavond 11/12
 - kostprijs 35€
+- kijk op Facebook voor de geplande sessies
 
 ---
 
