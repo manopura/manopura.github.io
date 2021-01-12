@@ -38,7 +38,7 @@ Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer
 - start bij elk nieuw schooljaar; nieuwe reeks start 9 september 2020
 - elke donderdagavond 18:45u-19:45u, behalve tijdens schoolvakanties   
 - 10€ per les; 100€ per deel
-- 30 weken voor de 3 delen = jaartraject (deel 1 start 9 sept 2020; deel 2 start 10 dec 2020; deel 3 start 18 maart 2021) 
+- 30 weken voor de 3 delen = jaartraject (deel 1 start 9 sept 2020; deel 2 start 14 jan 2021; deel 3 start 22 april 2021) 
 
 Voor enkele getuigenissen, ga naar [**meditatie**](http://www.manopura.be/meditatie.html)
 
