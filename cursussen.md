@@ -40,6 +40,8 @@ Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer
 - 10€ per les; 100€ per deel
 - 30 weken voor de 3 delen = jaartraject (deel 1 start 9 sept 2020; deel 2 start 14 jan 2021; deel 3 start 22 april 2021) 
 
+Speciaal voor de covid-periode start **deel 1 Hoofd opnieuw** op op 1/2/2021!
+
 Voor enkele getuigenissen, ga naar [**meditatie**](http://www.manopura.be/meditatie.html)
 
 ---
