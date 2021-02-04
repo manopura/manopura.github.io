@@ -9,7 +9,7 @@ Ik vind het heel belangrijk mensen op verschillende niveau's te kunnen begeleide
 **Voeding**    
 
 Onze voeding laat te wensen over; te veel pesticiden, zware metalen, chemische toevoegingen,... Daardoor mist het lichaam bepaalde essentiële voedingsstoffen, of geraakt het geïntoxiceerd.    
-Ik werk samen met The Herborist om via gezonde, natuurlijke, biologische middelen het lichaam te helpen detoxiceren of aansterken. Wanneer je via mij producten bestelt, krijg je korting bij The Herborist. Ik heb ook een beperkte voorraad in stock van enkele meest courante producten, zodat je na een behandeling al meteen iets kan meenemen naar huis om ook van binnenuit te kunnen werken. 
+Ik werk samen met [**The Herborist**](http://www.theherborist.be/nl) om via gezonde, natuurlijke, biologische middelen het lichaam te helpen detoxiceren of aansterken. Wanneer je via mij producten bestelt, krijg je korting bij The Herborist. Ik heb ook een beperkte voorraad in stock van enkele meest courante producten, zodat je na een behandeling al meteen iets kan meenemen naar huis om ook van binnenuit te kunnen werken. 
 
 
 
