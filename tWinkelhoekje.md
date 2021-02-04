@@ -4,6 +4,15 @@ menu: etherische_olie
 ---
 # 't Winkelhoekje
 
+Ik vind het heel belangrijk mensen op verschillende niveau's te kunnen begeleiden. Hieronder een kort overzicht van ondersteuning via voeding, aromatherapie, minerale gesteenten, ruimer energie-werk.   
+
+**Voeding**    
+
+Onze voeding laat te wensen over; te veel pesticiden, zware metalen, chemische toevoegingen,... Daardoor mist het lichaam bepaalde essentiële voedingsstoffen, of geraakt het geïntoxiceerd.    
+Ik werk samen met The Herborist om via gezonde, natuurlijke, biologische middelen het lichaam te helpen detoxiceren of aansterken. Wanneer je via mij producten besteld, krijg je korting bij The Herborist. Ik heb ook een beperkte voorraad in stock van enkele meest courante producten, zodat je na een behandeling al meteen iets kan meenemen naar huis. 
+
+
+
 Je kan een aantal **etherische oliën** kopen, om eventueel te verdampen of in het badwater te doen, of te mengen bij een andere neutrale olie.
 
 Deze oliën worden bij Manopura zelf ook gebruikt, als aroma ondersteuning bij de behandeling.
