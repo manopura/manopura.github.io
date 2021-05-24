@@ -1,3 +1,11 @@
+---
+layout: blog
+title:  "Pinkstermaandag"
+date:   2021-05-24
+tags: [kracht,energie,balans]
+---
+
+
 Wat doet een mens op een grijze, miezerige vrije dag?
 
 Terrasje doen is niet echt een optie. Binnen zitten. Alweer. Al zolang. 
