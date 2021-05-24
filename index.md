@@ -73,7 +73,8 @@ Ik streef naar
 ---  
 
 
-Volg ons op [**Facebook**](https://www.facebook.com/manopura/) voor het laatste nieuws!
+Volg ons op [**MeWe**](https://mewe.com/p/manopura-komtotrust-mariandelathauwer) voor het laatste nieuws!    
+Facebook als social media hebben we verlaten omdat we niet meer achter de normen en waarden van dat bestuur zaten.
 
 ---
 
