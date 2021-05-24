@@ -20,6 +20,6 @@ Deze opleiding/ inwijdingen worden verspreid over het jaar gegeven. Het is 1 les
 
 [**Ja, ik neem deel!**](mailto:marian@manopura.be) aan een infosessie! 
 
-Volg ons op [**Facebook**](https://www.facebook.com/manopura/) voor het laatste nieuws!
+Volg ons op [**MeWe**](https://mewe.com/p/manopura-komtotrust-mariandelathauwer) voor het laatste nieuws!
 
 ![reiki](images/reiki.png)
