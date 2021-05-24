@@ -48,8 +48,6 @@ Voor enkele getuigenissen, ga naar [**meditatie**](http://www.manopura.be/medita
 
 **KOM TOT RUST - GEVORDERDEN**   
 
-Bekijk het [**filmpje**](https://www.facebook.com/manopura/videos/762834827799364/) hierover op de Facebookpagina.    
-
 Deze cursus is het vervolg op de vorige Kom tot Rust. 
 
 In deze cursus ligt de nadruk op lichamelijke en geestelijke oefeningen, minder op onderricht in het algemeen. 
@@ -74,7 +72,7 @@ Sinds corona weten we dat ons immuunsysteem van cruciaal belang is om ons gezond
 - webinar (online)   
 - verschillende inzichten, tips en lichaamsoefeningen om je immuniteit te versterken 
 - kostprijs 35€
-- kijk op Facebook voor de geplande sessies
+- kijk op MeWe voor de geplande sessies
 
 ---
 
@@ -103,11 +101,11 @@ Kostprijs: 40€ per les.
 Best lessenpakket in zijn totaliteit te volgen om alles goed te begrijpen.   
 
 
-Deze cursus **fysiek in groep** staat even "on hold" wegens de corona-maatregelen. Het is zeer moeilijk nu data in te plannen omdat fysiek samenzijn in groep niet mag. Weet wel dat wanneer deze lock down weer voorbij is, de cursus vrij snel van start zal gaan. Hou daarom de Manopura Facebook pagina in de gaten!  
+Deze cursus **fysiek in groep** staat even "on hold" wegens de corona-maatregelen. Het is zeer moeilijk nu data in te plannen omdat fysiek samenzijn in groep niet mag. Weet wel dat wanneer deze lock down weer voorbij is, de cursus vrij snel van start zal gaan. Hou daarom de Manopura MeWe-pagina in de gaten!  
    
    
 
 
 [**Ja, ik neem deel!**](mailto:marian@manopura.be) aan een cursus! Laat me weten dewelke je precies interesseert, en ik contacteer je voor meer details, link voor webinars, etc! 
 
-Volg ons op [**Facebook**](https://www.facebook.com/manopura/) voor het laatste nieuws!
+Volg ons op [**MeWe**](https://mewe.com/p/manopura-komtotrust-mariandelathauwer) voor het laatste nieuws!
