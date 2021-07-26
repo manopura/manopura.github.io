@@ -1,3 +1,9 @@
+---
+layout: blog
+title:  "Reflecties op muziek"
+date:   20201-07-26
+tags: [kracht,mindfulness,energie,balans]
+---
 
 Reflecties op muziek   
 
