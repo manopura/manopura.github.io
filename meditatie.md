@@ -26,23 +26,16 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 
 
 **Wat houdt het in?**
+  
 
-Er zijn 2 mogelijkheden:    
-
-1) voor wie nog helemaal geen ervaring heeft met mediteren, is er de "Kom tot rust" serie in 3 delen. 
+Voor wie nog helemaal geen ervaring heeft met mediteren, is er de "Kom tot rust" serie in 3 delen. 
 Voor meer uitleg daarover, zie ook [**cursussen**](http://www.manopura.be/cursussen.html)
 
   * 1 uurtje in de week oefenen, life in de praktijkruimte of online
   * een inleiding met duiding en uitleg telkens over een ander facet van wat onrust creëert en hoe je ermee om kan gaan
   * de meditatie zelf die begeleid wordt, stap voor stap
   * nabespreking van de ervaringen
-  * donderdagavonden 18:45u-19:45u, behalve tijdens schoolvakanties
-  
-2) voor wie de "Kom tot rust" serie reeds gevolgd heeft, of voor wie reeds voldoende meditatie ervaring heeft
-  * 1 uurtje in de week oefenen, life in de praktijkruimte of online
-  * eerste half uur 'meditatie in beweging' met verschillende QiGong oefeningen
-  * tweede half uur ofwel geleide meditatie ofwel stilte meditatie
-  * donderdagavonden 20:15u-21:15u, behalve tijdens schoolvakanties
+  * donderdagavonden 19:00u-20:00u, behalve tijdens schoolvakanties. Start nieuwe schooljaar donderdag 30 september 2021.   
 
 Elke les kost 10€.
 
