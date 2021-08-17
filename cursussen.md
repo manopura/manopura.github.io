@@ -21,7 +21,7 @@ Want wees maar zeker dat je ego je vaak onderuit wil halen in twijfels en alles 
 DEEL 2 HART   
 Dit gedeelte kan je pas volgen, wanneer je de 10 lessen van Deel 1 afgewerkt hebt.    
 Hier wordt specifiek ingezoemd op alles wat je aan emoties belet om tot leegte, tot stilte te komen. Vaak is angst (vanuit het ego) de boosdoener waardoor je niet verder durft te gaan. Je kan het vergelijken met een kind dat vraagt de slaapkamerdeur open te laten en het licht in de gang te laten branden, uit schrik voor het donker van de nacht. Je leert aan dit te herkennen en wanneer emoties opkomen, om ze te verzachten zodat ze je niet gaan overmeesteren.  
-(*Disclaimer: mensen met psychische kwetsbaarheden vragen beter ondersteuning bij een psycholoog of psychiater)*
+(*Disclaimer: mensen met psychische kwetsbaarheden vragen best ondersteuning bij hun psycholoog of psychiater)*
 
 DEEL 3 HARA   
 Hara is het Japanse woord voor buik, jouw levenskracht, evenwicht, buikgevoel.
@@ -35,12 +35,11 @@ Het is aangeraden de 10 lessen van een deel in zijn totaliteit te volgen omdat z
 Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer dat deel herhaald wordt.  
 
 - online of offline
-- start bij elk nieuw schooljaar; nieuwe reeks start 9 september 2020
-- elke donderdagavond 18:45u-19:45u, behalve tijdens schoolvakanties   
+- start bij elk nieuw schooljaar; nieuwe reeks start 30 september 2021
+- elke donderdagavond 19:00u-20:00u, behalve tijdens schoolvakanties   
 - 10€ per les; 100€ per deel
-- 30 weken voor de 3 delen = jaartraject (deel 1 start 9 sept 2020; deel 2 start 14 jan 2021; deel 3 start 22 april 2021) 
+- 30 weken voor de 3 delen = jaartraject (deel 1 najaar 2021; deel 2 vòòr Pasen 2022; deel 3 na Pasen 2022)
 
-Speciaal voor de covid-periode start **deel 1 Hoofd opnieuw** op op 1/2/2021!
 
 Voor enkele getuigenissen, ga naar [**meditatie**](http://www.manopura.be/meditatie.html)
 
@@ -57,10 +56,9 @@ Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het 
 
 Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te hebben.    
 
-- online of offline
-- start bij elk nieuw schooljaar; nieuwe reeks start 9 september 2020
-- elke donderdagavond 20:15u-21:15u, behalve tijdens schoolvakanties   
-- 10€ per les; 10 beurtenkaart mogelijk aan 95€.   
+- offline
+- 10€ per les
+- heropstart voorzien in 2022  
 
 ---
 
@@ -94,14 +92,13 @@ Een greep uit de thema's:
 **Lente**: nieuwe plannen uitwerken; leren ontgiften na de winter, grote schoonmaak van het lichaam   
 **Zomer**: durven in volle expansie staan en genieten; je lichaamstemperatuur onder de loupe. Je hart als motor.   
 
-De cursus zal door de corona-regels voor het ogenblik opstarten **online**   
-Data: 1 zaterdagmorgen per maand van 10-12u:   
-12/12/20; 9/1/21; 6/2/21; 13/3/21; 10/4/21; 8/5/21   
-Kostprijs: 40€ per les.    
+ 
+Data: 1 zaterdag per maand van 10-16u:     
+Kostprijs: 80€ per dag.    
 Best lessenpakket in zijn totaliteit te volgen om alles goed te begrijpen.   
 
 
-Deze cursus **fysiek in groep** staat even "on hold" wegens de corona-maatregelen. Het is zeer moeilijk nu data in te plannen omdat fysiek samenzijn in groep niet mag. Weet wel dat wanneer deze lock down weer voorbij is, de cursus vrij snel van start zal gaan. Hou daarom de Manopura MeWe-pagina in de gaten!  
+Deze cursus **fysiek in groep** staat even "on hold" wegens de corona-maatregelen. Voorziene start herfst 2021, als de maatregelen dat toelaten. 
    
    
 
