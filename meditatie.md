@@ -35,7 +35,7 @@ Voor meer uitleg daarover, zie ook [**cursussen**](http://www.manopura.be/cursus
   * een inleiding met duiding en uitleg telkens over een ander facet van wat onrust creëert en hoe je ermee om kan gaan
   * de meditatie zelf die begeleid wordt, stap voor stap
   * nabespreking van de ervaringen
-  * donderdagavonden 19:00u-20:00u, behalve tijdens schoolvakanties. Start nieuwe schooljaar donderdag 30 september 2021.   
+  * donderdagavonden 18:45u-19:45u, behalve tijdens schoolvakanties. Start nieuwe schooljaar donderdag 30 september 2021.   
 
 Elke les kost 10€.
 
