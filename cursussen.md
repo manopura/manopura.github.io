@@ -36,7 +36,7 @@ Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer
 
 - online of offline
 - start bij elk nieuw schooljaar; nieuwe reeks start 30 september 2021
-- elke donderdagavond 19:00u-20;00u, behalve tijdens schoolvakanties   
+- elke donderdagavond 19:00u-20:00u, behalve tijdens schoolvakanties   
 - 10€ per les; 100€ per deel
 - 30 weken voor de 3 delen = jaartraject (deel 1 najaar 2021; deel 2 vòòr Pasen 2022; deel 3 na Pasen 2022)
 
@@ -56,7 +56,6 @@ Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het 
 
 Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te hebben.    
 
-- offline of online
 - 10€ per les
 - heropstart voorzien in 2022  
 
