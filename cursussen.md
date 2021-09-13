@@ -61,6 +61,16 @@ Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te 
 
 ---
 
+**NIEUW! 5 ELEMENTEN YOGA**
+
+Deze vorm van Yoga nodigt uit om te verstillen in het lichaam, om niet de nadruk te leggen op de spierkracht, maar om te voelen waar de innerlijke kracht zit. De basis is de Oosterse 5 elementen-leer, waar je aanleert dat er een aantal natuurlijke krachten en processen deel zijn van je lichaam en je leven. Als je goed meebeweegt met deze natuurlijke stimulans, dan kom je zelf meer en meer in balans. 
+
+- Wekelijkse les van 1,5 uur
+- 15€ per les
+- startdatum en locatie nog te bepalen
+
+
+---
 
 **BOOST JE IMMUUNSYSTEEM**   
 
