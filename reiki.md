@@ -15,8 +15,9 @@ Je kan ook uiteraard heel bewust voor een Reiki sessie kiezen.
 Naast de gebruikelijke behandelingen, worden er ook regelmatig infosessies gehouden als kennismaking wat Reiki precies is, met een korte uitleg en de mogelijkheid even Reiki te ontvangen, zodat je kan aanvoelen wat het je brengt en of dit iets voor jou is. Bekijk onze Facebook pagina voor de data. 
 
 Als je besloten hebt dat Reiki iets voor jou is, dat je er meer wil over weten en zelf wil mee werken, als instrument naar verdere persoonlijke groei en ontwikkeling, dan is de opleiding voor Reiki 1e graad zeker iets voor jou!   
-Deze opleiding/ inwijdingen worden verspreid over het jaar gegeven. Het is 1 lesdag met theorie, inwijdingen, oefeningen op elkaar, waarna je volledig zelf aan de slag kan. Lunch is inbegrepen. 
-Als je al een Reiki 1e graad hebt, ben je ook welkom voor de inwijdingen, les en oefeningen van Reiki 2e graad!
+Deze opleiding/ inwijdingen worden verspreid over het jaar gegeven.    
+Het is 1 lesdag met theorie, inwijdingen, oefeningen op elkaar, waarna je volledig zelf aan de slag kan. Lunch is inbegrepen.    
+Als je al een Reiki 1e graad hebt, ben je ook welkom voor de inwijdingen, les en oefeningen van Reiki 2e graad!   
 
 
 [**Ja, ik wil meer weten!**](mailto:marian@manopura.be)
