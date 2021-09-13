@@ -16,7 +16,7 @@ Manopura is van mening dat alleen gesprekken niet volstaan, maar dat ook op het 
 De coaching gaat vaak **veel verder dan alleen het bekijken van de stress haarden**. Lichamelijke klachten zijn dikwijls emoties of onverwerkte zaken uit het verleden die via het lichaam om aandacht en verwerking vragen. Samen kijken we naar de diepere oorzaak en pakken we die aan.
 
 Een coaching traject omvat algauw een aantal sessies. Hoeveel sessies je precies nodig hebt, is moeilijk te voorspellen; ieder mens is uniek, iedere situatie is anders, iedere voorgeschiedenis is anders. Maar mijn ervaring leert dan je met een 8-tal sessies al een heel eind komt! 
-Het individuele **basis begeleidingstraject** omvat 8 sessies van 1,5 uur. Alles samen 700 euro; of als je liever per aparte sessie betaalt, dan is het 90 euro per sessie. 
+We kijken dan samen of we sessies nemen van 1 uur of anderhalf uur.  
 
 
 Manopura biedt (stress) coaching aan zowel op individueel vlak als op professioneel vlak aan bedrijven.
