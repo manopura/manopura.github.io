@@ -56,7 +56,7 @@ Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het 
 
 Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te hebben.    
 
-- offline
+- offline of online
 - 10€ per les
 - heropstart voorzien in 2022  
 
@@ -69,7 +69,7 @@ Sinds corona weten we dat ons immuunsysteem van cruciaal belang is om ons gezond
 
 - webinar (online)   
 - verschillende inzichten, tips en lichaamsoefeningen om je immuniteit te versterken 
-- kostprijs 35€
+- kostprijs 20€
 - kijk op MeWe voor de geplande sessies
 
 ---
@@ -98,11 +98,11 @@ Kostprijs: 80€ per dag.
 Best lessenpakket in zijn totaliteit te volgen om alles goed te begrijpen.   
 
 
-Deze cursus **fysiek in groep** staat even "on hold" wegens de corona-maatregelen. Voorziene start herfst 2021, als de maatregelen dat toelaten. 
+Deze cursus **fysiek in groep** wordt opniew voorzien vanaf herfst 2021 en loopt door in 2022. 
    
    
 
 
-[**Ja, ik neem deel!**](mailto:marian@manopura.be) aan een cursus! Laat me weten dewelke je precies interesseert, en ik contacteer je voor meer details, link voor webinars, etc! 
+[**Ja, ik neem deel!**](mailto:marian@manopura.be) aan een cursus!
 
-Volg ons op [**MeWe**](https://mewe.com/p/manopura-komtotrust-mariandelathauwer) voor het laatste nieuws!
+Volg ons op [**MeWe**](https://mewe.com/p/manopura-komtotrust-mariandelathauwer) voor het laatste nieuws en data!
