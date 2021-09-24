@@ -37,7 +37,7 @@ Voor meer uitleg daarover, zie ook [**cursussen**](http://www.manopura.be/cursus
   * nabespreking van de ervaringen
   * donderdagavonden 19:00u-20:00u, behalve tijdens schoolvakanties. Start nieuwe schooljaar donderdag 30 september 2021.   
 
-Elke les kost 10€.
+Elke les kost 10€. Je kan ook een 10 beurten kaart kopen.
 
 **Registreren noodzakelijk**: stuur ons een [mailtje](mailto:marian@manopura.be)
 
