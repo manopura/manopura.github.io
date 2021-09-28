@@ -4,7 +4,20 @@ menu: Getuigenissen
 ---
 # Getuigenissen
 
-ik kan wel zeggen dat ik je manier van werken heel goed vind. De dingen worden heel goed uitgelegd en je hebt de gepaste stem en de juiste woorden om de relaxatie heel goed te begeleiden. Mijn innerlijke criticus (lastpost) is al veel vriendelijker geworden voor mij. Ik had nooit gedacht dat ik zo een evolutie zou kunnen doormaken. Je manier van werken is echt wel heel waardevol en ik wil zeker voort komen na dit corona-gedoe. Heel goed ook dat je de sessies opneemt en digitaal ter beschikking stelt. Zo kan je rustgevende stem ook thuis voor de gepaste begeleiding zorgen. 
+Af en toe mag een mens eens dromen, van mooie dingen, maar voor mij de voorbije jaren vooral van een pijnvrij bestaan. Rugpijn beheerste mijn doen en laten, vooral het laten... Ik hoorde je spreken met passie en gedrevenheid over Manopura en Shiatsu. Het trok mijn aandacht, ik moest maar eens een afspraak maken. Het eerste gesprek ging meer over mijn mentale weerbaarheid na het duikongeval en zijn gevolgen. Met veel aandacht noteerde je alles. Waarna je de behandeling begon. Na anderhalf uur reed ik terug naar huis. Pas in de auto bemerkte ik dat de rugpijn, die 4 jaar mijn leven had beheerst, was verdwenen! Nu inmiddels reeds 4 maand geleden. Ongelooflijk dat de gewone geneeskunde me niet kon helpen, me aanzette tot het aanvaarden en ermee leren leven, met pijnstillers en beperkingen. Ik heb nu mijn leven terug, met uitdagingen en doelen! Marian, Manopura, met je handen verricht je alvast bij mij wonderen!
+
+*Gery*
+
+---
+
+Na een diagnose van burnout, kwam ik via een vriendin bij Marian terecht. Na het uitgebreide intakegesprek, de degelijke uitleg en een eerste kennismaking met de behandeling, ging ik naar huis met het geruststellende gevoel dat er wel effectief een oplossing was voor de klachten die ik had en de pijn die ik voelde.
+In de daaropvolgende sessies mocht ik ervaren dat je bij Marian geen nummer bent. Elke klacht neemt ze ernstig en is bespreekbaar, ze luistert en elke behandeling verloopt zeer respectvol. Ze geeft passende oefeningen die je thuis kan doen en vele tips, met daarbij telkens de vrijheid daaruit de dingen te kiezen die jij voor jezelf haalbaar acht.
+Dankuwel Marian om mij te leren naar mijn lichaam te luisteren en mij te begeleiden bij mijn herstel. Ik kan het iedereen aanbevelen!
+
+*Ann*
+
+---
+Ik kan wel zeggen dat ik je manier van werken heel goed vind. De dingen worden heel goed uitgelegd en je hebt de gepaste stem en de juiste woorden om de relaxatie heel goed te begeleiden. Mijn innerlijke criticus (lastpost) is al veel vriendelijker geworden voor mij. Ik had nooit gedacht dat ik zo een evolutie zou kunnen doormaken. Je manier van werken is echt wel heel waardevol en ik wil zeker voort komen na dit corona-gedoe. Heel goed ook dat je de sessies opneemt en digitaal ter beschikking stelt. Zo kan je rustgevende stem ook thuis voor de gepaste begeleiding zorgen. 
 
 *Patrick V*
 
@@ -27,23 +40,7 @@ Een aanrader om de reeksen te volgen!
 
 *Frankie*
 
-
 ---
-
-Na een diagnose van burnout, kwam ik via een vriendin bij Marian terecht. Na het uitgebreide intakegesprek, de degelijke uitleg en een eerste kennismaking met de behandeling, ging ik naar huis met het geruststellende gevoel dat er wel effectief een oplossing was voor de klachten die ik had en de pijn die ik voelde.
-In de daaropvolgende sessies mocht ik ervaren dat je bij Marian geen nummer bent. Elke klacht neemt ze ernstig en is bespreekbaar, ze luistert en elke behandeling verloopt zeer respectvol. Ze geeft passende oefeningen die je thuis kan doen en vele tips, met daarbij telkens de vrijheid daaruit de dingen te kiezen die jij voor jezelf haalbaar acht.
-Dankuwel Marian om mij te leren naar mijn lichaam te luisteren en mij te begeleiden bij mijn herstel. Ik kan het iedereen aanbevelen!
-
-*Ann*
-
----
-
-Af en toe mag een mens eens dromen, van mooie dingen, maar voor mij de voorbije jaren vooral van een pijnvrij bestaan. Rugpijn beheerste mijn doen en laten, vooral het laten... Ik hoorde je spreken met passie en gedrevenheid over Manopura en Shiatsu. Het trok mijn aandacht, ik moest maar eens een afspraak maken. Het eerste gesprek ging meer over mijn mentale weerbaarheid na het duikongeval en zijn gevolgen. Met veel aandacht noteerde je alles. Waarna je de behandeling begon. Na anderhalf uur reed ik terug naar huis. Pas in de auto bemerkte ik dat de rugpijn, die 4 jaar mijn leven had beheerst, was verdwenen! Nu inmiddels reeds 4 maand geleden. Ongelooflijk dat de gewone geneeskunde me niet kon helpen, me aanzette tot het aanvaarden en ermee leren leven, met pijnstillers en beperkingen. Ik heb nu mijn leven terug, met uitdagingen en doelen! Marian, Manopura, met je handen verricht je alvast bij mij wonderen!
-
-*Gery*
-
----
-
 Ik was gecrasht op het werk en had een burn-out!  Dat op zich alleen al was voor mij heel confronterend. Bij het intake gesprek was Marian een luisterend oor en had ze veel geduld en begrip voor mijn verhaal.  Daarna heeft ze met haar druktechniek de spanningsvelden in mijn lichaam behandeld. En toen ze bij een volgende sessie op mijn nek en schouders werkte, was het precies of het juk van mijn schouders werd gehaald. Ik zou Marian zeker aan iedereen warm aanbevelen die hier voor openstaat. 
 Dus Marian een dikke merci !!!
 
