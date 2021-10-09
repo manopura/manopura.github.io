@@ -1,6 +1,6 @@
 ---
 layout: markdown
-menu: Aanbod
+menu: rodeheuvel
 ---
 # Polikliniek Rode Heuvel
 
