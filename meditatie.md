@@ -31,13 +31,13 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 Voor wie nog helemaal geen ervaring heeft met mediteren, is er de "Kom tot rust" serie in 3 delen. 
 Voor meer uitleg daarover, zie ook [**cursussen**](http://www.manopura.be/cursussen.html)
 
-  * 1 uurtje in de week oefenen, life in de praktijkruimte of online
+  * 1 uurtje in de week oefenen, life in de praktijkruimte van Manopura of online
   * een inleiding met duiding en uitleg telkens over een ander facet van wat onrust creëert en hoe je ermee om kan gaan
   * de meditatie zelf die begeleid wordt, stap voor stap
   * nabespreking van de ervaringen
-  * donderdagavonden 19:00u-20:00u, behalve tijdens schoolvakanties. Start nieuwe schooljaar donderdag 30 september 2021.   
+  * dinsdagavonden 19:00u-20:00u, behalve tijdens schoolvakanties. Start nieuwe schooljaar donderdag 30 september 2021.   
 
-Elke les kost 10€. Je kan ook een 10 beurten kaart kopen.
+Elke les kost 12€. Je kan ook een 10 beurten kaart kopen (120€).
 
 **Registreren noodzakelijk**: stuur ons een [mailtje](mailto:marian@manopura.be)
 
