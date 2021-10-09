@@ -36,8 +36,8 @@ Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer
 
 - online of offline
 - start bij elk nieuw schooljaar; nieuwe reeks start 30 september 2021
-- elke donderdagavond 19:00u-20:00u, behalve tijdens schoolvakanties   
-- 10€ per les; 100€ per deel
+- elke dinsdagavond 19:00u-20:00u, behalve tijdens schoolvakanties   
+- 12€ per les; 120€ per deel
 - 30 weken voor de 3 delen = jaartraject (deel 1 najaar 2021; deel 2 vòòr Pasen 2022; deel 3 na Pasen 2022)
 
 
@@ -56,7 +56,7 @@ Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het 
 
 Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te hebben.    
 
-- 10€ per les
+- 12€ per les
 - heropstart voorzien in 2022  
 
 ---
@@ -65,9 +65,9 @@ Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te 
 
 Deze vorm van Yoga nodigt uit om te verstillen in het lichaam, om niet de nadruk te leggen op de spierkracht, maar om te voelen waar de innerlijke kracht zit. De basis is de Oosterse 5 elementen-leer, waar je aanleert dat er een aantal natuurlijke krachten en processen deel zijn van je lichaam en je leven. Als je goed meebeweegt met deze natuurlijke stimulans, dan kom je zelf meer en meer in balans. 
 
-- Wekelijkse les van 1,5 uur
-- 15€ per les
-- startdatum en locatie nog te bepalen
+- Wekelijkse les van 1:15u
+- 12€ per les
+- elke donderdagavond 20:15-21:30u (behalve schoolvakanties) in de polyvalente zaal van de [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be). Registreren via de agenda op hun website verplicht!
 
 
 ---
