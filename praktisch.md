@@ -31,7 +31,7 @@ Reiki:
 Groepslessen:   
 Meditatie      
 60 min - 12 euro per persoon  
-Gelieve uw aanwezigheid te bevestigen op marian@manopura.be 
+Gelieve uw aanwezigheid te bevestigen op marian@manopura.be    
 Deze groepsles gaat door in de praktijkruimte van Manopura.   
 
 5 elementen Yoga   
