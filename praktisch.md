@@ -28,14 +28,14 @@ Reiki:
 60 min - 60 euro  
 90 min - 90 euro
 
-Groepslessen:   
-Meditatie      
+**Groepslessen**:   
+**Meditatie**      
 60 min - 12 euro per persoon  
 Gelieve uw aanwezigheid te bevestigen op marian@manopura.be    
 Deze groepsles gaat door in de praktijkruimte van Manopura.   
 
-5 elementen Yoga   
-1:15u - 12 euro per persoon   
+**5 elementen Yoga**   
+75 min - 12 euro per persoon   
 Gelieve uw aanwezigheid te registreren via de agenda op de website van [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be).       
 Deze groepsles gaat door in de polyvalente ruimte van Polikliniek Rode Heuvel.   
 
