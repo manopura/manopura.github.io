@@ -45,8 +45,7 @@ Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
 ### Praktisch  
 
 
-+ Voorkeur gaat naar electronisch betalen via de BanContact app op de smartphone.  
-Cash betalen gaat uiteraard ook.
++ Betaling kan zowel cash als electronisch via een BanContact app op de smartphone.  
 
 + Sommige mutualiteiten komen gedeeltelijk tussen in de kosten.   
 Gelieve u daarover te informeren.
