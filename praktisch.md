@@ -64,18 +64,11 @@ Gelieve u daarover te informeren.
 
 Volgende **corona veiligheidsmaatregelen** zullen gehanteerd worden:
 
-Bij aankomst wordt u gevraagd uw handen te wassen in het gastentoilet.   
-Kom in de gepaste kledij zodat u zich niet meer moet omkleden.   
-Laat alle spullen (GSM, portefeuille, sleutels, handtassen, sieraden...) beneden in de voorziene ruimte.   
-Betaal zoveel mogelijk via de smartphone of overschrijving vooraf.   
-Tijdens het intake gesprek wordt 1,5 m afstand gegarandeerd.   
-Houdt u aan de hoest-en niesetiquette.   
-Tijdens de behandeling zelf zal ik een mondmasker dragen; u wordt verzocht hetzelfde te doen. Breng dus uw eigen mondmasker mee!   
-De massagestoel wordt na elke klant ontsmet.   
-Breng een eigen grote badhanddoek mee voor behandeling op de futon.   
-De behandelruimte wordt na elke klant extra geventileerd.   
+Houdt u aan de hoest-en niesetiquette.     
+De massagestoel wordt na elke klant ontsmet.     
+De behandelruimte wordt na of tijdens elke klant extra geventileerd.   
 Kom op de voorziene tijd van uw afspraak; indien u te vroeg bent, wacht in uw auto of buiten. De wachtkamer wordt momenteel niet gebruikt.   
-Voelt u zich ziek of iemand van uw huisgenoten is ziek: annuleer dan de afspraak, liefst 24 uur vooraf.   
+Voelt u zich ziek of iemand van uw huisgenoten is ziek, doe een (speeksel)test. Indien positief, annuleer dan schriftelijk de afspraak met het bewijs van uw positieve test. Is de test negatief, kom alsnog. Dan werken we verder op de versterking van uw immuunsysteem.      
 Heeft u hierover nog verdere vragen, stel ze gerust!   
 
 ### Voor Bedrijven:
