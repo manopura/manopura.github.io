@@ -66,7 +66,7 @@ Volgende **corona veiligheidsmaatregelen** zullen gehanteerd worden:
 
 Houdt u aan de hoest-en niesetiquette.     
 De massagestoel wordt na elke klant ontsmet.     
-De behandelruimte wordt na of tijdens elke klant extra geventileerd.   
+De behandelruimte wordt na of indien nodig tijdens elke klant extra geventileerd.   
 Kom op de voorziene tijd van uw afspraak; indien u te vroeg bent, wacht in uw auto of buiten. De wachtkamer wordt momenteel niet gebruikt.   
 Voelt u zich ziek of iemand van uw huisgenoten is ziek, doe een (speeksel)test. Indien positief, annuleer dan schriftelijk de afspraak met het bewijs van uw positieve test. Is de test negatief, kom alsnog. Dan werken we verder op de versterking van uw immuunsysteem.      
 Heeft u hierover nog verdere vragen, stel ze gerust!   
