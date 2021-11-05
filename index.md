@@ -79,7 +79,7 @@ Facebook als social media hebben we verlaten omdat we niet meer achter de normen
 ---
 
   
-Manopura is lid van de Belgische Shiatsu Federatie.
+Manopura is lid van de Belgische Shiatsu Federatie. Sinds november 2021 zetel ik in de Raad van Bestuur.
 
 
 [![belgische shiatsu federatie](images/bsf.png)](http://www.shiatsu.be)
