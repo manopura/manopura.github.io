@@ -67,7 +67,7 @@ Deze vorm van Yoga nodigt uit om te verstillen in het lichaam, om niet de nadruk
 
 - Wekelijkse les van 1:15u
 - 12€ per les
-- elke donderdagavond 20:15-21:30u (behalve schoolvakanties) in de polyvalente zaal van de [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be). Registreren via de agenda op hun website verplicht!
+- elke donderdagavond 17:30 - 18:45 (behalve schoolvakanties) in de polyvalente zaal van de [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be). Registreren verplicht! Stuur mij een mailtje om in te schrijven. 
 
 
 ---
