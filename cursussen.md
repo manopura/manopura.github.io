@@ -100,6 +100,9 @@ Kostprijs groeps-oefensessie: vrije bijdrage
 
 Deze opleiding wordt momenteel nog niet gegeven, omdat ikzelf als Reiki Master nog in evolutie ben.
 
+
+Alle Reiki-opleidingen worden voorzien op aanvraag. Ik werk met kleine groepjes van 4 mensen. Heb je interesse in Reiki 1 of Reiki 2, stuur ons een mailtje! Van zodra er 4 mensen zijn, wordt de opleiding voorzien. In de nieuwsbrief worden de data doorgegeven. Abonneer je op de nieuwsbrief via de laatste pagina onder Contact.
+
 ---
 
 
