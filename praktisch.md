@@ -29,9 +29,9 @@ Reiki:
 90 min - 90 euro
 
 Yoga privé-les:   
-30 min - 30 euro
-45 min - 45 euro
-60 min - 60 euro
+30 min - 30 euro   
+45 min - 45 euro   
+60 min - 60 euro   
 
 
 **Groepslessen**:   
