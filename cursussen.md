@@ -80,9 +80,25 @@ Reiki wordt toegepast daar waar energiestromen in het lichaam geblokkeerd raken 
 
 Wil je Reiki inzetten voor zelfzorg, of voor zorg aan anderen? Volg dan de opleiding.
 
-**Reiki 1**: eerste graadsopleiding. 
-Je leert Reiki dieper kennen, nadat je al eens een Reiki behandeling hebt ondergaan. 
+**Reiki 1**: eerste graadsopleiding.    
 
+Je leert Reiki dieper kennen, nadat je al eens een Reiki behandeling hebt ondergaan. De opleiding bestaat uit 1 dag van 10u tot 18u. Lunch, syllabus, inwijding en oefeningen inbegrepen. Vanaf die dag kan je Reiki op jezelf toepassen. Het is best daar zo veel mogelijk mee aan de slag te gaan, en dagelijks te oefenen. Er worden ook groeps-oefensessies georganiseerd om ervaringen met elkaar te delen. Het is van belang eerst grondig op zichzelf te werken en eigen processen in gang te zetten, alvorens te willen overgaan naar de volgende stap.  
+
+Kostprijs opleidingsdag: 150 €   
+Kostprijs groeps-oefensessie: vrije bijdrage   
+
+**Reiki 2**: tweede graadsopleiding.   
+
+Wanneer je je klaar voelt om de volgende stap in je ontwikkeling te zetten, kan je overgaan op Reiki 2. Zoals Reiki zeer individueel zijn eigen uitwerking kent, zo ook de evolutie die je doormaakt. Er wordt aangeraden -mínstens- 6 maand aan de slag te zijn met Reiki 1 alvorens de stap naar Reiki 2 te kunnen zetten. Je hoort het ook echt te voelen, dat je er klaar voor bent. Bij twijfel, contacteer je Reiki Master.   
+Reiki 2 is net als Reiki 1 een volledige opleidingsdag, lunch, inwijding, syllabus en oefeningen inbegrepen. Vanaf die dag kan je ook Reiki doorgeven aan anderen, zowel fysiek als op afstand.    
+De reden waarom je pas in Reiki 2 aanleert op anderen te werken, is omdat je eerst op jezelf diende te werken tijdens Reiki 1. Je kan pas iemand anders goed behandelen, als je eerst leert zorg dragen voor jezelf. Bovendien komen er voor jezelf in het Reiki 2 proces weer andere, diepere zaken naar boven, zodat je steeds dieper en verder evolueert.   
+
+Kostprijs opleidingsdag: 150 €   
+Kostprijs groeps-oefensessie: vrije bijdrage   
+
+**Reiki 3**: derde graadsopleiding.
+
+Deze opleiding wordt momenteel nog niet gegeven, omdat ikzelf als Reiki Master nog in evolutie ben.
 
 ---
 
