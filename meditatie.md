@@ -35,11 +35,12 @@ Voor meer uitleg daarover, zie ook [**cursussen**](http://www.manopura.be/cursus
   * een inleiding met duiding en uitleg telkens over een ander facet van wat onrust creëert en hoe je ermee om kan gaan
   * de meditatie zelf die begeleid wordt, stap voor stap
   * nabespreking van de ervaringen
-  * dinsdagavonden 19:00u-20:00u, behalve tijdens schoolvakanties. Start nieuwe schooljaar donderdag 30 september 2021.   
+   
 
-Elke les kost 12€. Je kan ook een 10 beurten kaart kopen (120€).
+Elke les kost 12€. Je kan ook een 10 beurten kaart kopen (110€).
 
-**Registreren noodzakelijk**: stuur ons een [mailtje](mailto:marian@manopura.be)
+**Registreren noodzakelijk**: stuur ons een [mailtje](mailto:marian@manopura.be)   
+Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
 
 
 ---
