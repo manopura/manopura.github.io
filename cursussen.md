@@ -35,11 +35,10 @@ Het is aangeraden de 10 lessen van een deel in zijn totaliteit te volgen omdat z
 Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer dat deel herhaald wordt.  
 
 - online of offline
-- start bij elk nieuw schooljaar; nieuwe reeks start 30 september 2021
-- elke dinsdagavond 19:00u-20:00u, behalve tijdens schoolvakanties   
-- 12€ per les; 120€ per deel
-- 30 weken voor de 3 delen = jaartraject (deel 1 najaar 2021; deel 2 vòòr Pasen 2022; deel 3 na Pasen 2022)
+- 12€ per les; 110€ per deel van 10 lessen
+- 30 weken voor de 3 delen = jaartraject
 
+Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
 
 Voor enkele getuigenissen, ga naar [**meditatie**](http://www.manopura.be/meditatie.html)
 
@@ -57,7 +56,7 @@ Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het 
 Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te hebben.    
 
 - 12€ per les
-- heropstart voorzien in 2022  
+Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
 
 ---
 
@@ -79,7 +78,7 @@ Sinds corona weten we dat ons immuunsysteem van cruciaal belang is om ons gezond
 - webinar (online)   
 - verschillende inzichten, tips en lichaamsoefeningen om je immuniteit te versterken 
 - kostprijs 20€
-- kijk op MeWe voor de geplande sessies
+Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
 
 ---
 
@@ -106,12 +105,11 @@ Data: 1 zaterdag per maand van 10-16u:
 Kostprijs: 80€ per dag.    
 Best lessenpakket in zijn totaliteit te volgen om alles goed te begrijpen.   
 
-
-Deze cursus **fysiek in groep** wordt opniew voorzien vanaf herfst 2021 en loopt door in 2022. 
+Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact! 
    
    
 
 
 [**Ja, ik neem deel!**](mailto:marian@manopura.be) aan een cursus!
 
-Volg ons op [**MeWe**](https://mewe.com/p/manopura-komtotrust-mariandelathauwer) voor het laatste nieuws en data!
+Volg ons op [**MeWe**](https://mewe.com/p/manopura-komtotrust-mariandelathauwer).
