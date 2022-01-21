@@ -73,6 +73,8 @@ Breng je eigen yoga matje, kussen of blokje, en dekentje mee.
 
 Bovendien zijn er studies die aantonen dat deze vorm van yoga met meditatief karakter en focus op ademhaling, een ideale manier is om de stress-respons te verbeteren en een verstoorde darm-hersenen connectie herstellen. Deze yoga vorm wordt beschouwd als een veelbelovende therapie voor prikkelbare darm (Kavuri V, 2015; Schumann D, 2016). In een recent onderzoek werd vastgesteld dat 12 weken yoga de symptomen van prikkelbare darm even goed vermindert als een FODMAP dieet. (Schumann D, 2018)
 
+Ben je niet zo een groepsmens, en wil je liever persoonlijke begeleiding? dat kan ook! ik geef je dan yoga oefeningen in een 1 op 1 sessie, volledig op jouw maat. De prijs is dezelfde als een gewone consultatie.
+
 
 
 - Wekelijkse les van 1:15u
