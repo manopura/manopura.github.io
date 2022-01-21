@@ -55,7 +55,7 @@ Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het 
 
 Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te hebben.    
 
-- 12€ per les
+- 12€ per les   
 Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
 
 ---
@@ -66,7 +66,8 @@ Deze vorm van Yoga nodigt uit om te verstillen in het lichaam, om niet de nadruk
 
 - Wekelijkse les van 1:15u
 - 12€ per les
-- elke donderdagavond 17:30 - 18:45 (behalve schoolvakanties) in de polyvalente zaal van de [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be). Registreren verplicht! Stuur mij een mailtje om in te schrijven. 
+- elke donderdagavond 17:30 - 18:45 (behalve schoolvakanties) in de polyvalente zaal van de [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be).    
+Registreren verplicht! Stuur mij een mailtje om in te schrijven. 
 
 
 ---
@@ -77,7 +78,7 @@ Sinds corona weten we dat ons immuunsysteem van cruciaal belang is om ons gezond
 
 - webinar (online)   
 - verschillende inzichten, tips en lichaamsoefeningen om je immuniteit te versterken 
-- kostprijs 20€
+- kostprijs 20€   
 Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
 
 ---
