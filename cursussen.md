@@ -62,7 +62,18 @@ Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagi
 
 **NIEUW! 5 ELEMENTEN YOGA**
 
-Deze vorm van Yoga nodigt uit om te verstillen in het lichaam, om niet de nadruk te leggen op de spierkracht, maar om te voelen waar de innerlijke kracht zit. De basis is de Oosterse 5 elementen-leer, waar je aanleert dat er een aantal natuurlijke krachten en processen deel zijn van je lichaam en je leven. Als je goed meebeweegt met deze natuurlijke stimulans, dan kom je zelf meer en meer in balans. 
+Deze vorm van Yoga nodigt uit om te verstillen in lichaam en geest. We zijn al druk druk druk genoeg!   
+Het is gebaseerd op de 5 elementen-leer van het Oosten. Het is geen hatha yoga, geen yin yoga,... je hoeft niets te kennen over de 5 elementen. De nodige uitleg geef ik wel tijdens de lessen zelf. Het is een vorm van lichaamsbeweging die de nadruk legt op vitaliteit. Hoe vitaal, hoe krachtig voel je je in je lichaam. Het gaat niet over uithouding of spierkracht. Het is geen powertraining. Het is een leren stilstaan bij wat je voelt wanneer je lichaam bepaalde stretchings uitvoert. Er is dus ook geen prestatiedrang, geen vergelijking met anderen. Jij voelt jouw lichaam. Dat van een ander kan je niet voelen. Jij voelt waar de oefening jou naartoe brengt. Door meer te voelen met aandacht, kweek je meer lichaamsbewustzijn. Je leert jezelf en je lichaam beter kennen. En zo bouw je kracht/vitaliteit op.   
+
+Voorbeeld 1: Merk je op dat je innerlijke criticus met je aan de haal gaat? merk je je eigen grenzen? wat doet dat met je? wil je er toch over? hoe voelt het om over die grenzen te gaan? etc. En bij het uitoefenen van de bewegingen stimuleer je je lichaam in zijn vitale krachten, die alle processen in je lichaam en geest aansturen.   
+
+Voorbeeld 2: de verschillende elementen werken het krachtigst per seizoen. De winter, dat is de periode van het element Water. Water regeert o.a. over de lichaamssystemen van nieren en blaas. Ook van knieën, botten en zenuwstelsel. Oefeningen op het element Water helpen deze systemen dus te ondersteunen. Alle oefeningen worden zittend/liggend op de mat gedaan, indien nodig met hulp van kussens.
+
+Breng je eigen yoga matje, kussen of blokje, en dekentje mee.   
+
+Bovendien zijn er studies die aantonen dat deze vorm van yoga met meditatief karakter en focus op ademhaling, een ideale manier is om de stress-respons te verbeteren en een verstoorde darm-hersenen connectie herstellen. Deze yoga vorm wordt beschouwd als een veelbelovende therapie voor prikkelbare darm (Kavuri V, 2015; Schumann D, 2016). In een recent onderzoek werd vastgesteld dat 12 weken yoga de symptomen van prikkelbare darm even goed vermindert als een FODMAP dieet. (Schumann D, 2018)
+
+
 
 - Wekelijkse les van 1:15u
 - 12€ per les
