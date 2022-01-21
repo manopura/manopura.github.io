@@ -28,6 +28,12 @@ Reiki:
 60 min - 60 euro  
 90 min - 90 euro
 
+Yoga privé-les:   
+30 min - 30 euro
+45 min - 45 euro
+60 min - 60 euro
+
+
 **Groepslessen**:   
 **Meditatie**      
 60 min - 12 euro per persoon  
@@ -38,6 +44,7 @@ Deze groepsles gaat door in de praktijkruimte van Manopura.
 75 min - 12 euro per persoon   
 Gelieve uw aanwezigheid te registreren via de agenda op de website van [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be).       
 Deze groepsles gaat door in de polyvalente ruimte van Polikliniek Rode Heuvel.   
+
 
 Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
 
