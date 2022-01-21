@@ -72,6 +72,21 @@ Registreren verplicht! Stuur mij een mailtje om in te schrijven.
 
 ---
 
+**REIKI**
+
+Reiki is een Japanse behandelingswijze (rei = ‘geest’ of ‘ziel’; ki = ‘energie’ of ‘levenskracht’) waarbij via de handen de eigen bezielende levensenergie (=Ki) terug geharmoniseerd wordt op fysiek, emotioneel, mentaal en spiritueel gebied. De Japanner Mikao Usui ontwikkelde dit systeem oorspronkelijk als een weg naar geluk, harmonie en spirituele ontwikkeling.
+
+Reiki wordt toegepast daar waar energiestromen in het lichaam geblokkeerd raken door bij voorbeeld nog niet verwerkte negatieve ervaringen uit het verleden, met lichamelijke en geestelijke problemen als gevolg. Veel van die ervaringen zitten in het onderbewuste. Met Reiki kunnen ze zacht aangeraakt worden, zodat ze naar de oppervlakte kunnen komen om geheeld te worden. 
+
+Wil je Reiki inzetten voor zelfzorg, of voor zorg aan anderen? Volg dan de opleiding.
+
+**Reiki 1**: eerste graadsopleiding. 
+Je leert Reiki dieper kennen, nadat je al eens een Reiki behandeling hebt ondergaan. 
+
+
+---
+
+
 **BOOST JE IMMUUNSYSTEEM**   
 
 Sinds corona weten we dat ons immuunsysteem van cruciaal belang is om ons gezond te houden. Dit webinar van 1,5 uur legt klaar en duidelijk uit wat een immuunsysteem is, welke pijlers er zijn voor het onderhouden van een goede gezondheid; je krijgt vele praktische tips en makkelijke oefeningen die je thuis kan doen, om zo je immuunsysteem op peil te houden.
