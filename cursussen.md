@@ -81,7 +81,7 @@ Ben je niet zo een groepsmens, en wil je liever persoonlijke begeleiding? dat ka
 - 12€ per les
 - elke donderdagavond 17:30 - 18:45 in de polyvalente zaal van de [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be). **OOK** tijdens schoolvakanties!  
 - elke vrijdagmorgen 10:00 - 11:15 in [**Praktijk Salutem Lochristi**](https://praktijksalutem.be). **NIET** tijdens schoolvakanties!
-- 10 beurtenkaart mogelijk
+- 10 beurtenkaart mogelijk   
 Registreren verplicht! Stuur een mailtje om in te schrijven. 
 
 
