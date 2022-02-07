@@ -12,4 +12,5 @@ Groepsles 5 elementen yoga van 17:30-18:45u.
 Meer info over de yoga les zelf onder rubriek "Cursussen".   
 Boek je consultatie daar en/of de groepsles via de agenda op hun website.   
 
-[**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be)
+[**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be)   
+![fotoyogawetteren](images/yoga wetteren.png)
