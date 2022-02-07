@@ -83,6 +83,9 @@ Ben je niet zo een groepsmens, en wil je liever persoonlijke begeleiding? dat ka
 - elke vrijdagmorgen 10:00 - 11:15 in [**Praktijk Salutem Lochristi**](https://praktijksalutem.be). **NIET** tijdens schoolvakanties!
 - 10 beurtenkaart mogelijk   
 Registreren verplicht! Stuur een mailtje om in te schrijven. 
+   
+      
+![fotoyogaalgemeen](images/yoga_algemeen.png)
 
 
 ---
