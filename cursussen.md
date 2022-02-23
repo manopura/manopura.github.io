@@ -4,6 +4,27 @@ menu: cursussen
 ---
 # Cursussen
 
+**MINDFULNESS**
+
+Stress overheerst je leven, en je wil er wat aan doen. Maar je weet niet hoe.
+Je gedachten lijken in rondjes te draaien. Je wil er wat aan doen, maar je weet niet hoe.
+Je geestelijke gezondheid heeft te lijden gehad door de corona maatregelen en je zoekt begeleiding.
+Je wil bewuster in het leven staan, meer zelfbewustzijn aanleren, zodat je betere keuzes kan maken die goed voor je zijn. Die keuzes kunnen zich overal situeren: op het werk, in de relaties met familie of vrienden, in je levensstijl,...
+
+Dit zijn een paar redenen waarom een cursus mindfulness voor jou op dit moment waardevol zou kunnen zijn. 
+Je leert er verschillende methodes aan, je krijgt de tijd om ze goed in te oefenen en je eigen te maken, zodat je na de cursus er nog steeds mee verder kan en niet terug in je oude patronen hervalt.
+
+Deze methode is sinds de jaren 70 wetenschappelijk onderzocht geweest en heeft zijn nut bewezen als vorm van cognitieve gedragstherapie, tegen depressies en herval ervan, tegen langdurige stress, etc. Zij wordt inmiddels door verschillende artsen en in verschillende ziekenhuizen succesvol toegepast. Denk maar aan de programma's MBCT, MBSR.
+
+Start nieuwe cursus in Polikliniek Rode Heuvel Wetteren - donderdag 10/3/2022 19u00- 21u30
+Inschrijven via marian@manopura.be
+1 avond per week, 8 weken in totaal. 
+Kostprijs: 300€ voor de 8 weken (= 20 lesuren).
+
+![fotoMF](images/MFflyer.png)
+
+---
+
 **5 ELEMENTEN YOGA**
 
 Deze vorm van Yoga nodigt uit om te verstillen in lichaam en geest. We zijn al druk druk druk genoeg!   
