@@ -4,66 +4,10 @@ menu: cursussen
 ---
 # Cursussen
 
-**KOM TOT RUST**  
-
-Sinds corona of door andere oorzaken die stress-gerelateerd zijn, zijn veel mensen op zoek naar rust. Deze 3 delige cursus helpt inzicht te krijgen in wat je precies bezig houdt en hoe je eraan kan verhelpen. 
-
-Deze cursus bestaat uit 3 delen: HOOFD, HART, HARA.   
-Je komt pas volledit tot rust, als je aangeleerd hebt dat er 2 'stemmen' zijn in je systeem die je het knap lastig kunnen maken: die van je hoofd (ego) en die van het hart (emo).   
-Eens je kennis hebt gemaakt met wat je hoofd op hol brengt, en welke terugkerende belastende emoties je meedraagt, is de weg open voor de derde 'stem', de meest stille van de 3: je buikgevoel.
-
-DEEL 1 HOOFD   
-Hier wordt specifiek ingezoemd op alles wat je kopzorgen bezorgd. Je leert de brulaap in je hoofd kennen die onophoudelijk gedachten produceert en je bezig houdt, zelfs onrustig maakt of niet laat slapen.   
-Alles wat mentale processen zijn of reacties van het ego worden onder de loep genomen.   
-Zo leer je beter begrijpen hoe die denkprocessen verlopen en hoe je ze tot bedaren kan brengen, zodat je meer ruimte en rust in je hoofd kan ervaren en openkomt voor de leegte waar de intuïtie te horen is.    
-Want wees maar zeker dat je ego je vaak onderuit wil halen in twijfels en alles zal platredeneren wat je eventueel intuïtief aanvoelt.   
-
-DEEL 2 HART   
-Dit gedeelte kan je pas volgen, wanneer je de 10 lessen van Deel 1 afgewerkt hebt.    
-Hier wordt specifiek ingezoemd op alles wat je aan emoties belet om tot leegte, tot stilte te komen. Vaak is angst (vanuit het ego) de boosdoener waardoor je niet verder durft te gaan. Ook verdriet, boosheid, frustratie,... zijn op zich energie-rovers, zeker als ze latent aanwezig blijven. Je leert aan deze processen te herkennen en wanneer emoties opkomen, om ze te verzachten zodat ze je niet gaan overmeesteren.  
-(*Disclaimer: mensen met psychische kwetsbaarheden vragen best toelating en ondersteuning bij hun psycholoog of psychiater)*
-
-DEEL 3 HARA   
-Hara is het Japanse woord voor buik, jouw levenskracht, evenwicht, buikgevoel.
-Je start met dit deel als je deel2 hebt afgerond.   
-Hier leer je dan aan hoe de stem van het buikgevoel gericht op te zoeken, te raadplegen, te gebruiken. Je leert in de stilte te 'zijn'.
-Er worden verschillende oefeningen en manieren aangeboden, zodat je kan verkennen wat bij jou het beste werkt.
-   
-
-Je schrijft je in per deel.    
-Het is aangeraden de 10 lessen van een deel in zijn totaliteit te volgen omdat ze opbouwend werken.    
-Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer dat deel herhaald wordt.  
-
-- online of offline
-- 12€ per les; 110€ per deel van 10 lessen
-- 30 weken voor de 3 delen = jaartraject
-
-Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
-
-Voor enkele getuigenissen, ga naar [**meditatie**](http://www.manopura.be/meditatie.html)
-
----
-
-**KOM TOT RUST - GEVORDERDEN**   
-
-Deze cursus is het vervolg op de vorige Kom tot Rust. 
-
-In deze cursus ligt de nadruk op lichamelijke en geestelijke oefeningen, minder op onderricht in het algemeen. 
-We starten met een half uur lichaamsoefeningen, traag, verstillend, verrijkend, energie-gevend. De oefeningen zijn gebaseerd op QiGong en Shiatsu, de 5 elementen leer. De oefeningen zelf worden zeer uitgebreid besproken; het gaat niet alleen om het fysiek uitvoeren ervan, maar van het begrijpen wat er precies gebeurt wanneer je ze toepast. Daardoor verkrijg je een ruimer lichaamsbewustzijn en innerlijk aanvoelen.      
-
-Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het thema herfst komen aan bod: grenzen leren stellen, grenzen laten respecteren, vertrouwen opbouwen, ruimte leren innemen, omgaan met verdriet, etc etc.   
-
-Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te hebben.    
-
-- 12€ per les   
-Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
-
----
-
-**NIEUW! 5 ELEMENTEN YOGA**
+**5 ELEMENTEN YOGA**
 
 Deze vorm van Yoga nodigt uit om te verstillen in lichaam en geest. We zijn al druk druk druk genoeg!   
-Het is gebaseerd op de 5 elementen-leer van het Oosten. Het is geen hatha yoga, geen yin yoga,... je hoeft niets te kennen over de 5 elementen. De nodige uitleg geef ik wel tijdens de lessen zelf. Het is een vorm van lichaamsbeweging die de nadruk legt op vitaliteit. Hoe vitaal, hoe krachtig voel je je in je lichaam. Het gaat niet over uithouding of spierkracht. Het is geen powertraining. Het is een leren stilstaan bij wat je voelt wanneer je lichaam bepaalde stretchings uitvoert. Er is dus ook geen prestatiedrang, geen vergelijking met anderen. Jij voelt jouw lichaam. Dat van een ander kan je niet voelen. Jij voelt waar de oefening jou naartoe brengt. Door meer te voelen met aandacht, kweek je meer lichaamsbewustzijn. Je leert jezelf en je lichaam beter kennen. En zo bouw je kracht/vitaliteit op.   
+Het is gebaseerd op de 5 elementen-leer van het Oosten. Het is geen hatha yoga, geen yin yoga,... je hoeft niets te kennen over de 5 elementen. De nodige uitleg geef ik wel tijdens de lessen zelf. Het is een vorm van lichaamsbeweging die de nadruk legt op vitaliteit. Hoe vitaal, hoe krachtig voel je je in je lichaam. Het gaat niet over uithouding of spierkracht. Het is geen powertraining. Het is een leren stilstaan bij wat je voelt wanneer je lichaam bepaalde stretchings uitvoert. Er is dus ook geen prestatiedrang, geen vergelijking met anderen. Jij voelt jouw lichaam. Dat van een ander kan je niet voelen. Jij voelt waar de oefening jou naartoe brengt. Door meer te voelen met aandacht, en te combineren met je ademhaling, kweek je meer lichaamsbewustzijn. Je leert jezelf en je lichaam beter kennen. En zo bouw je kracht/vitaliteit op.   
 
 Voorbeeld 1: Merk je op dat je innerlijke criticus met je aan de haal gaat? merk je je eigen grenzen? wat doet dat met je? wil je er toch over? hoe voelt het om over die grenzen te gaan? etc. En bij het uitoefenen van de bewegingen stimuleer je je lichaam in zijn vitale krachten, die alle processen in je lichaam en geest aansturen.   
 
@@ -122,6 +66,63 @@ Deze opleiding wordt momenteel nog niet gegeven, omdat ikzelf als Reiki Master n
 Alle Reiki-opleidingen worden voorzien op aanvraag. Ik werk met kleine groepjes van 4 mensen. Heb je interesse in Reiki 1 of Reiki 2, stuur ons een mailtje! Van zodra er 4 mensen zijn, wordt de opleiding voorzien. In de nieuwsbrief worden de data doorgegeven. Abonneer je op de nieuwsbrief via de laatste pagina onder Contact.
 
 ---
+**KOM TOT RUST**  
+
+Sinds corona of door andere oorzaken die stress-gerelateerd zijn, zijn veel mensen op zoek naar rust. Deze 3 delige cursus helpt inzicht te krijgen in wat je precies bezig houdt en hoe je eraan kan verhelpen. 
+
+Deze cursus bestaat uit 3 delen: HOOFD, HART, HARA.   
+Je komt pas volledit tot rust, als je aangeleerd hebt dat er 2 'stemmen' zijn in je systeem die je het knap lastig kunnen maken: die van je hoofd (ego) en die van het hart (emo).   
+Eens je kennis hebt gemaakt met wat je hoofd op hol brengt, en welke terugkerende belastende emoties je meedraagt, is de weg open voor de derde 'stem', de meest stille van de 3: je buikgevoel.
+
+DEEL 1 HOOFD   
+Hier wordt specifiek ingezoemd op alles wat je kopzorgen bezorgd. Je leert de brulaap in je hoofd kennen die onophoudelijk gedachten produceert en je bezig houdt, zelfs onrustig maakt of niet laat slapen.   
+Alles wat mentale processen zijn of reacties van het ego worden onder de loep genomen.   
+Zo leer je beter begrijpen hoe die denkprocessen verlopen en hoe je ze tot bedaren kan brengen, zodat je meer ruimte en rust in je hoofd kan ervaren en openkomt voor de leegte waar de intuïtie te horen is.    
+Want wees maar zeker dat je ego je vaak onderuit wil halen in twijfels en alles zal platredeneren wat je eventueel intuïtief aanvoelt.   
+
+DEEL 2 HART   
+Dit gedeelte kan je pas volgen, wanneer je de 10 lessen van Deel 1 afgewerkt hebt.    
+Hier wordt specifiek ingezoemd op alles wat je aan emoties belet om tot leegte, tot stilte te komen. Vaak is angst (vanuit het ego) de boosdoener waardoor je niet verder durft te gaan. Ook verdriet, boosheid, frustratie,... zijn op zich energie-rovers, zeker als ze latent aanwezig blijven. Je leert aan deze processen te herkennen en wanneer emoties opkomen, om ze te verzachten zodat ze je niet gaan overmeesteren.  
+(*Disclaimer: mensen met psychische kwetsbaarheden vragen best toelating en ondersteuning bij hun psycholoog of psychiater)*
+
+DEEL 3 HARA   
+Hara is het Japanse woord voor buik, jouw levenskracht, evenwicht, buikgevoel.
+Je start met dit deel als je deel2 hebt afgerond.   
+Hier leer je dan aan hoe de stem van het buikgevoel gericht op te zoeken, te raadplegen, te gebruiken. Je leert in de stilte te 'zijn'.
+Er worden verschillende oefeningen en manieren aangeboden, zodat je kan verkennen wat bij jou het beste werkt.
+   
+
+Je schrijft je in per deel.    
+Het is aangeraden de 10 lessen van een deel in zijn totaliteit te volgen omdat ze opbouwend werken.    
+Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer dat deel herhaald wordt.  
+
+- online of offline
+- 12€ per les; 110€ per deel van 10 lessen
+- 30 weken voor de 3 delen = jaartraject
+
+Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
+
+Voor enkele getuigenissen, ga naar [**meditatie**](http://www.manopura.be/meditatie.html)
+
+---
+
+**KOM TOT RUST - GEVORDERDEN**   
+
+Deze cursus is het vervolg op de vorige Kom tot Rust. 
+
+In deze cursus ligt de nadruk op lichamelijke en geestelijke oefeningen, minder op onderricht in het algemeen. 
+We starten met een half uur lichaamsoefeningen, traag, verstillend, verrijkend, energie-gevend. De oefeningen zijn gebaseerd op QiGong en Shiatsu, de 5 elementen leer. De oefeningen zelf worden zeer uitgebreid besproken; het gaat niet alleen om het fysiek uitvoeren ervan, maar van het begrijpen wat er precies gebeurt wanneer je ze toepast. Daardoor verkrijg je een ruimer lichaamsbewustzijn en innerlijk aanvoelen.      
+
+Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het thema herfst komen aan bod: grenzen leren stellen, grenzen laten respecteren, vertrouwen opbouwen, ruimte leren innemen, omgaan met verdriet, etc etc.   
+
+Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te hebben.    
+
+- 12€ per les   
+Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
+
+---
+
+
 
 
 **BOOST JE IMMUUNSYSTEEM**   
