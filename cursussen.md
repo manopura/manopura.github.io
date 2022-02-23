@@ -18,7 +18,7 @@ Je leert er verschillende methodes aan, je krijgt de tijd om ze goed in te oefen
 Deze methode is sinds de jaren 70 wetenschappelijk onderzocht geweest en heeft zijn nut bewezen als vorm van cognitieve gedragstherapie, tegen depressies en herval ervan, tegen langdurige stress, etc. Zij wordt inmiddels door verschillende artsen en in verschillende ziekenhuizen succesvol toegepast. Denk maar aan de programma's MBCT, MBSR.
 
 Start nieuwe cursus in Polikliniek Rode Heuvel Wetteren - donderdag 10/3/2022 19u00- 21u30   
-Inschrijven via (mailto:marian@manopura.be)   
+Inschrijven via [**marian@manopura.be**](mailto:marian@manopura.be)   
 1 avond per week, 8 weken in totaal.    
 Kostprijs: 300€ voor de 8 weken (= 20 lesuren).   
 
