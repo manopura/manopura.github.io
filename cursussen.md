@@ -10,6 +10,7 @@ Stress overheerst je leven, en je wil er wat aan doen. Maar je weet niet hoe.
 Je gedachten lijken in rondjes te draaien. Je wil er wat aan doen, maar je weet niet hoe.
 Je geestelijke gezondheid heeft te lijden gehad door de corona maatregelen en je zoekt begeleiding.
 Je wil bewuster in het leven staan, meer zelfbewustzijn aanleren, zodat je betere keuzes kan maken die goed voor je zijn. Die keuzes kunnen zich overal situeren: op het werk, in de relaties met familie of vrienden, in je levensstijl,...
+Wacht niet tot een burn-out je velt, werk preventief!
 
 Dit zijn een paar redenen waarom een cursus mindfulness voor jou op dit moment waardevol zou kunnen zijn. 
 Je leert er verschillende methodes aan, je krijgt de tijd om ze goed in te oefenen en je eigen te maken, zodat je na de cursus er nog steeds mee verder kan en niet terug in je oude patronen hervalt.
