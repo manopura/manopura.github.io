@@ -73,7 +73,7 @@ Ik streef naar
 ---  
 
 
-Volg ons op [**MeWe**](https://mewe.com/p/manopura-komtotrust-mariandelathauwer) en op het [**Complementaire gezondheidszorg**](https://t.me/complementaire_gezondheidszorg) channel van Telegram  voor het laatste nieuws!    
+Volg ons op [**LinkedIn**](https://www.linkedin.com/in/manopura-shiatsu-stress-coaching-mindfulness-01b965172), [**MeWe**](https://mewe.com/p/manopura-komtotrust-mariandelathauwer) en op het [**Complementaire gezondheidszorg**](https://t.me/complementaire_gezondheidszorg) channel van Telegram  voor het laatste nieuws!    
 Facebook als social media hebben we verlaten omdat we niet meer achter de normen en waarden van dat bestuur staan.
 
 ---
