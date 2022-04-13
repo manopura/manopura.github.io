@@ -188,4 +188,7 @@ Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagi
 
 [**Ja, ik neem deel!**](mailto:marian@manopura.be) aan een cursus!
 
-Volg ons op [**MeWe**](https://mewe.com/p/manopura-komtotrust-mariandelathauwer).
+Schrijf je in op onze nieuwsbrief (onder Contact) om op te hoogte te blijven! 
+Volg ons Telegram kanaal "Complementaire gezondheidszorg": https://t.me/complementaire_gezondheidszorg
+
+
