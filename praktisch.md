@@ -2,7 +2,7 @@
 layout: markdown
 menu: praktisch
 ---
-# Praktisch
+# Praktisch & Agenda
 ### Voor Particulieren:
 ### Prijslijst:
 
