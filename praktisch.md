@@ -49,6 +49,8 @@ Deze groepsles gaat door in de polyvalente ruimte van Polikliniek Rode Heuvel.
 
 Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
 
+---
+
 ### Agenda
 
 **Yoga lessen in de Polikliniek Rode Heuvel**: elke donderdag, 19u00 - 20u15. Per les: 12 €. Geen voorkennis vereist. Vooraf inschrijven noodzakelijk. OOK tijdens schoolvakanties!   
@@ -63,6 +65,7 @@ Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
 
 **Open Meditatie**: 15 juni 0m 19u30; 6 juli 19u30; 24 augustus 19u30. Inkom gratis, of vrije bijdrage.   
 
+---
 
 ### Praktisch  
 
