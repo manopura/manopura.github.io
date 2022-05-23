@@ -4,6 +4,8 @@ menu: cursussen
 ---
 # Cursussen
 
+**Voor data en uren, kijk ook onder Praktisch, Agenda.**
+
 **MINDFULNESS**
 
 Stress overheerst je leven, en je wil er wat aan doen. Maar je weet niet hoe.
@@ -17,7 +19,7 @@ Je leert er verschillende methodes aan, je krijgt de tijd om ze goed in te oefen
 
 Deze methode is sinds de jaren 70 wetenschappelijk onderzocht geweest en heeft zijn nut bewezen als vorm van cognitieve gedragstherapie, tegen depressies en herval ervan, tegen langdurige stress, etc. Zij wordt inmiddels door verschillende artsen en in verschillende ziekenhuizen succesvol toegepast. Denk maar aan de programma's MBCT, MBSR.
 
-Start nieuwe cursus in Polikliniek Rode Heuvel Wetteren - donderdag 10/3/2022 19u00- 21u30   
+Kijk voor data onder Praktisch, Agenda. 
 Inschrijven [**Ja, ik neem deel!**](mailto:marian@manopura.be)      
 1 avond per week, 8 weken in totaal.    
 Kostprijs: 300€ voor de 8 weken (= 20 lesuren).   
@@ -45,7 +47,7 @@ Ben je niet zo een groepsmens, en wil je liever persoonlijke begeleiding? dat ka
 
 - Wekelijkse les van 1:15u
 - 12€ per les
-- elke donderdagavond 17:30 - 18:45 in de polyvalente zaal van de [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be) Wetteren. **OOK** tijdens schoolvakanties!  
+- elke donderdagavond 19u00 - 20u15 in de polyvalente zaal van de [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be) Wetteren. **OOK** tijdens schoolvakanties!  
 - elke vrijdagmorgen 10:00 - 11:15 in [**Praktijk Salutem Lochristi**](https://praktijksalutem.be). **NIET** tijdens schoolvakanties!
 - 10 beurtenkaart mogelijk   
 Registreren verplicht! Stuur een mailtje om in te schrijven. 
