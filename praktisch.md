@@ -3,9 +3,10 @@ layout: markdown
 menu: praktisch
 ---
 # Praktisch
-
 ### Voor Particulieren:
 ### Prijslijst:
+
+**De prijzen worden per 1 juli 2022 aangepast. Dan komt er 5 euro bij per behandeling.**
  
 Stress coaching & Shiatsu behandeling    
 (eerste keer is met intake gesprek)   
@@ -47,6 +48,20 @@ Deze groepsles gaat door in de polyvalente ruimte van Polikliniek Rode Heuvel.
 
 
 Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
+
+### Agenda
+
+**Yoga lessen in de Polikliniek Rode Heuvel**: elke donderdag, 19u00 - 20u15. Per les: 12 €. Geen voorkennis vereist. Vooraf inschrijven noodzakelijk. OOK tijdens schoolvakanties!   
+
+**Mindfulness 8-weekse opleiding in de Polikliniek Rode Heuvel**: nieuwe reeks vanaf donderdag 15 september 17u30-20u. Voor de 8 lessen van 2,5 uur: 300€. Geen voorkennis vereist. Vooraf inschrijven noodzakelijk.   
+
+**Reiki 1 opleiding en inwijding**: zaterdag 25 juni 10-18u in de praktijk van Manopura. Voor de hele dag, cursusmateriaal en lunch: 150€   
+
+**Reiki2 opleiding en inwijding**: zaterdag 27 aug 10u - 18u in de praktijk van Manopura. Voor de hele dag, cursusmateriaal en lunch: 150€    
+
+**OpenReiki oefenmoment** in groep met andere mensen die al dan niet een Reiki graad hebben. Samenkomen, ervaringen delen, vragen stellen, bijleren,... 25 mei om 19u. Inkom gratis, of vrije bijdrage.    
+
+**Open Meditatie**: 15 juni 0m 19u30; 6 juli 19u30; 24 augustus 19u30. Inkom gratis, of vrije bijdrage.   
 
 
 ### Praktisch  
