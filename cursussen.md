@@ -4,7 +4,8 @@ menu: cursussen
 ---
 # Cursussen
 
-**Voor data en uren, kijk ook onder Praktisch, Agenda.**
+**Voor data en uren, kijk ook onder Praktisch, Agenda.   
+Of schrijf je in op onze nieuwsbrief, zo blijf je altijd bij! **
 
 **MINDFULNESS**
 
@@ -24,7 +25,6 @@ Inschrijven [**Ja, ik neem deel!**](mailto:marian@manopura.be)
 1 avond per week, 8 weken in totaal.    
 Kostprijs: 300€ voor de 8 weken (= 20 lesuren).   
 
-![fotoMF](images/MFflyer.png)
 
 ---
 
