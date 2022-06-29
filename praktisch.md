@@ -52,8 +52,8 @@ Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
 ---
 
 ### Agenda
-
-**Yoga lessen in de Polikliniek Rode Heuvel**: elke donderdag, 19u00 - 20u15. Per les: 12 €. Geen voorkennis vereist. Vooraf inschrijven noodzakelijk. OOK tijdens schoolvakanties!   
+   
+**SUMMER SPECIAL: Yoga + meditatie oefening en extra uitleg over de 5 elementen leer** Op donderdagen 14/7, 28/7, 4/8, 11/8, 18/8 van 19u tot 21u in de polyvalente zaal van de Polikliniek Rode Heuvel, met zicht op de Schelde. Per les 25€. Je leert kennis maken met de dynamiek van de 5 elementen, de opbouw van energie en veerkracht, en tevens ontspanning voor lichaam en geest. Elke les wordt een apart element in de kijker gezet. Voorkennis is niet vereist. Vooraf inschrijven noodzakelijk, de plaatsen zijn beperkt. 
 
 **Mindfulness 8-weekse opleiding in de Polikliniek Rode Heuvel**: nieuwe reeks vanaf donderdag 15 september 17u30-20u. Voor de 8 lessen van 2,5 uur: 300€. Geen voorkennis vereist. Vooraf inschrijven noodzakelijk.   
 
