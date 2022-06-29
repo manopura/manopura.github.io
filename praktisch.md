@@ -63,7 +63,8 @@ Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
 
 **OpenReiki oefenmoment** in groep met andere mensen die al dan niet een Reiki graad hebben. Samenkomen, ervaringen delen, vragen stellen, bijleren,... 23 augstus om 19u. Inkom gratis, of vrije bijdrage.    
 
-**Open Meditatie**: 6 juli 19u30; 24 augustus 19u30. Inkom gratis, of vrije bijdrage.   
+**Open Meditatie**: 6 juli 19u30; 24 augustus 19u30. Inkom gratis, of vrije bijdrage. 
+
 
 ---
 
