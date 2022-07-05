@@ -25,9 +25,9 @@ Daarom krijg je persoonlijke begeleiding, volledig op jouw maat en afgestemd op 
 ![fotofrontwebsitemanopura](images/fotofrontwebsitemanopura.png)   
 
 Ik ben Marian De Lathauwer, afgestudeerd als Licentiate in de Romaanse Taal- en Letterkunde, en meteen nadien het bedrijfsleven ingedoken. Gelijktijdig daarmee, volgde ik vele cursussen in o.a. mindfulness, heart-fulness, relaxatie, ademhalingstechnieken, stress coach, muziek, yoga, QiGong, oude healingsmethoden, emotioneel lichaamswerk, EFT, basis anatomie en pathologie, en een doorgedreven opleiding Shiatsu en Voetreflexologie.   
-Dankzij deze verschillende disciplines heb ik nu unieke combinatie-mogelijkheden en verschillende invalshoeken om een situatie te bekijken.   
+Ik startte Manopura op in 2016, vanuit mijn zielsmissie om mensen te helpen bij de uitdagingen in hun leven. De kennis van enerzijds de harde business-wereld en anderzijds de 'soft skills' van energetisch werk, zie ik als een enorm voordeel. Het biedt me unieke combinatie-mogelijkheden en verschillende invalshoeken om een situatie te bekijken.   
 
-Ik begin traditioneel met een intake gesprek, om jouw situatie goed te begrijpen. Ik werk zowel op lichaam (via Shiatsu, Voetreflexologie, Reiki, Yoga, QiGong) als op geest (coaching, oude healing methoden, meditatie). Het lichaam zelf speelt een cruciale rol, omdat pijn en ongemak altijd een vertaling zijn van wat daar precies aan de basis van ligt. Plus ons denkvermogen wordt toch al te veel belast, en het lichaam al te veel verwaarloosd.
+Wanneer je bij mij een afspraak boekt, begin ik traditioneel met een intake gesprek, om jouw situatie goed te begrijpen. Ik werk namelijk zowel op lichaam (via Shiatsu, Voetreflexologie, Reiki, Yoga, QiGong) als op geest (coaching, oude healing methoden, meditatie). Het lichaam zelf speelt een cruciale rol, omdat pijn en ongemak altijd een vertaling zijn van wat daar precies aan de basis van ligt. Plus ons denkvermogen wordt toch al te veel belast, en het lichaam al te veel verwaarloosd.
 
 De sessies zijn interactief; jouw medewerking is vereist, zoals bij voorbeeld met oefeningen die ik meegeef om thuis verder te doen. Het beste resultaat wordt bereikt wanneer jezelf ook verantwoordelijkheid opneemt.
 
