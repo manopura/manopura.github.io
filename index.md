@@ -22,8 +22,10 @@ Daarom krijg je persoonlijke begeleiding, volledig op jouw maat en afgestemd op 
 
 # Wie ben ik?
 
-Stress is altijd deel van mijn leven geweest. Opgroeien in de onvoorspelbare en onbetrouwbare wereld van narcisme; eens het huis uit een boeiende maar stressvolle internationale carrière van ruim 20 jaar; doe daar een persoonlijke rijke interessesfeer, leergierigheid en enthousiasme bij, en je hebt de perfecte mix voor een zware burn-out... zeker als je moeilijk "neen" kan zeggen tegen anderen, en jezelf wegcijfert. Dus ik moest op zoek naar methoden die mij konden ondersteunen, om zowel lichamelijk als geestelijk de druk het hoofd te kunnen blijven bieden.
-Ik volgde vele cursussen in o.a. mindfulness, heart-fulness, relaxatie, ademhalingstechnieken, stress coach, muziek, yoga, QiGong, oude healingsmethoden, emotioneel lichaamswerk, EFT, basis anatomie en pathologie, en een doorgedreven opleiding Shiatsu en Voetreflexologie. Dankzij deze verschillende disciplines heb ik unieke combinatie-mogelijkheden en verschillende invalshoeken om een situatie te bekijken. 
+![fotofrontwebsitemanopura](images/fotofrontwebsitemanopura.png)   
+
+Ik ben Marian De Lathauwer, afgestudeerd als Licentiate in de Romaanse Taal- en Letterkunde, en meteen nadien de bedrijfswereld ingedoken. Gelijktijdig daarmee, volgde ik vele cursussen in o.a. mindfulness, heart-fulness, relaxatie, ademhalingstechnieken, stress coach, muziek, yoga, QiGong, oude healingsmethoden, emotioneel lichaamswerk, EFT, basis anatomie en pathologie, en een doorgedreven opleiding Shiatsu en Voetreflexologie.   
+Dankzij deze verschillende disciplines heb ik nu unieke combinatie-mogelijkheden en verschillende invalshoeken om een situatie te bekijken.   
 
 Ik begin traditioneel met een intake gesprek, om jouw situatie goed te begrijpen. Ik werk zowel op lichaam (via Shiatsu, Voetreflexologie, Reiki, Yoga, QiGong) als op geest (coaching, oude healing methoden, meditatie). Het lichaam zelf speelt een cruciale rol, omdat pijn en ongemak altijd een vertaling zijn van wat daar precies aan de basis van ligt. Plus ons denkvermogen wordt toch al te veel belast, en het lichaam al te veel verwaarloosd.
 
@@ -31,9 +33,12 @@ De sessies zijn interactief; jouw medewerking is vereist, zoals bij voorbeeld me
 
 Eigenlijk fungeer ik als een soort vertaler-tolk van de signalen van je lichaam (en geest), waarmee ik je help begrijpen waar de oorzaak ligt en hoe je ermee aan de slag kan.
 
-Mijn grote voordeel is dat ik logisch - analytisch sterk ben, als hoogsensitief persoon ook meteen aanvoel wat er speelt en pragmatisch van aanpak ben.  
+Mijn grote voordeel is dat ik logisch - analytisch sterk ben, als hoogsensitief persoon ook meteen aanvoel wat er speelt en pragmatisch van aanpak ben.     
 
-![fotofrontwebsitemanopura](images/fotofrontwebsitemanopura.png)
+Stress is trouwens altijd deel van mijn leven geweest. Opgroeien in de onvoorspelbare en onbetrouwbare wereld van narcisme; eens het huis uit een boeiende maar stressvolle internationale carrière van ruim 20 jaar; doe daar een persoonlijke rijke interessesfeer, leergierigheid en enthousiasme bij, en je hebt de perfecte mix voor een zware burn-out... zeker als je moeilijk "neen" kan zeggen tegen anderen, en jezelf wegcijfert. Dus ik moest voor mezelf op zoek naar methoden die mij konden ondersteunen, om zowel lichamelijk als geestelijk de druk het hoofd te kunnen blijven bieden. Deze rijke bron aan eigen levenservaringen vormt de basis voor wat ik jou kan aanrijken om jou doorheen jouw levensprocessen te begeleiden.    
+  
+
+
 
 # Missie  
 
