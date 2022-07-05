@@ -6,43 +6,42 @@ menu: praktisch
 ### Voor Particulieren:
 ### Prijslijst:
 
-**De prijzen worden per 1 juli 2022 aangepast. Dan komt er 5 euro bij per behandeling.**
+**De prijzen zijn per 1 juli 2022 aangepast**
  
 Stress coaching & Shiatsu behandeling    
 (eerste keer is met intake gesprek)   
-60 min - 60 euro  
-75 min - 75 euro   
-90 min - 90 euro 
+60 min - 65 euro  
+75 min - 80 euro   
+90 min - 95 euro 
 
 Shiatsu stoel nek-, schouders-, rugmassage:   
-30 min - 40 euro
+30 min - 45 euro
 
 Shiatsu ontspanningsmassage (zonder analyse, zonder intake)   
-45 min - 50 euro   
+45 min - 55 euro   
 
 Voetreflexologie:   
-45 min - 50 euro  
-60 min - 65 euro  
-75 min - 80 euro
+45 min - 55 euro  
+60 min - 70 euro  
+75 min - 85 euro
 
 Reiki:   
-60 min - 60 euro  
-90 min - 90 euro
+60 min - 65 euro  
+90 min - 95 euro
 
 Yoga privé-les:   
-30 min - 30 euro   
-45 min - 45 euro   
-60 min - 60 euro   
+30 min - 35 euro     
+60 min - 50 euro   
 
 
 **Groepslessen**:   
 **Meditatie**      
-60 min - 12 euro per persoon  
+60 min - 15 euro per persoon  
 Gelieve uw aanwezigheid te bevestigen op marian@manopura.be    
 Deze groepsles gaat door in de praktijkruimte van Manopura.   
 
 **5 elementen Yoga**   
-75 min - 12 euro per persoon   
+75 min - 15 euro per persoon   
 Gelieve uw aanwezigheid te registreren via de agenda op de website van [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be).       
 Deze groepsles gaat door in de polyvalente ruimte van Polikliniek Rode Heuvel.   
 
