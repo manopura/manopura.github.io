@@ -37,7 +37,7 @@ Mijn grote voordeel is dat ik logisch - analytisch sterk ben, als hoogsensitief 
 
 Stress is trouwens altijd deel van mijn leven geweest. Opgroeien in de onvoorspelbare en onbetrouwbare wereld van narcisme; eens het huis uit een boeiende maar stressvolle internationale carrière van ruim 20 jaar; doe daar een persoonlijke rijke interessesfeer, leergierigheid en enthousiasme bij, en je hebt de perfecte mix voor een zware burn-out... zeker als je moeilijk "neen" kan zeggen tegen anderen, en jezelf wegcijfert. Dus ik moest voor mezelf op zoek naar methoden die mij konden ondersteunen, om zowel lichamelijk als geestelijk de druk het hoofd te kunnen blijven bieden. Deze rijke bron aan eigen levenservaringen vormt de basis voor wat ik jou kan aanrijken om jou doorheen jouw levensprocessen te begeleiden.    
   
-Voor **bedrijven** ga ik soortgelijk te werk. Samen met de preventie-adviseur of de HR-verantwoordelijke brengen we in kaart waar we dienen aan te werken. Mijn aanbod is divers: korte stoelmassages voor het personeel om lichamelijke klachten aan te pakken; in-house opleidingen om beter met de werkdruk om te leren gaan; begeleidingstrajecten als welzijnscoach in de strijd tegen langdurig absenteïsme en burn-outs,...
+Voor **bedrijven** ga ik soortgelijk te werk. Samen met de CEO, preventie-adviseur of de HR-verantwoordelijke brengen we in kaart waar we dienen aan te werken. Mijn aanbod is divers: korte stoelmassages voor het personeel om lichamelijke klachten aan te pakken; in-house opleidingen om beter met de werkdruk om te leren gaan; begeleidingstrajecten als welzijnscoach in de strijd tegen langdurig absenteïsme en burn-outs,...
 
 
 # Missie  
@@ -73,7 +73,7 @@ Voor elk individu, mens, klant, patiënt:
 + op zoek naar diepgang, die intuïtief weet dat er meer is, en daarin begeleiding zoekt   
 + die bereid is aan zichzelf te willen werken   
 
-Voor elke preventie-adviseur, HR-verantwoordelijke, CEO:
+Voor elke CEO, preventie-adviseur, HR-verantwoordelijke:
 + die het beste voor heeft met het personeel
 + die proactief werkt aan het welzijn van de medewerkers
 + die oog heeft voor ergonomie, werkdruk, fysieke belasting
