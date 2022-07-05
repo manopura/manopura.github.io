@@ -27,7 +27,7 @@ Daarom krijg je persoonlijke begeleiding, volledig op jouw maat en afgestemd op 
 Ik ben Marian De Lathauwer, afgestudeerd als Licentiate in de Romaanse Taal- en Letterkunde, en meteen nadien het bedrijfsleven ingedoken. Gelijktijdig daarmee, volgde ik vele cursussen in o.a. mindfulness, heart-fulness, relaxatie, ademhalingstechnieken, stress coach, muziek, yoga, QiGong, oude healingsmethoden, emotioneel lichaamswerk, EFT, basis anatomie en pathologie, en een doorgedreven opleiding Shiatsu en Voetreflexologie.   
 Ik startte Manopura op in 2016, vanuit mijn zielsmissie om mensen te helpen bij de uitdagingen in hun leven. De kennis van enerzijds de harde business-wereld en anderzijds de 'soft skills' van energetisch werk, zie ik als een enorm voordeel. Het biedt me unieke combinatie-mogelijkheden en verschillende invalshoeken om een situatie te bekijken.   
 
-Wanneer je bij mij een afspraak boekt, begin ik traditioneel met een intake gesprek, om jouw situatie goed te begrijpen. Ik werk namelijk zowel op lichaam (via Shiatsu, Voetreflexologie, Reiki, Yoga, QiGong) als op geest (coaching, oude healing methoden, meditatie). Het lichaam zelf speelt een cruciale rol, omdat pijn en ongemak altijd een vertaling zijn van wat daar precies aan de basis van ligt. Plus ons denkvermogen wordt toch al te veel belast, en het lichaam al te veel verwaarloosd.
+Wanneer je als **particulier** bij mij een afspraak boekt, begin ik traditioneel met een intake gesprek, om jouw situatie goed te begrijpen. Ik werk namelijk zowel op lichaam (via Shiatsu, Voetreflexologie, Reiki, Yoga, QiGong) als op geest (coaching, oude healing methoden, meditatie). Het lichaam zelf speelt een cruciale rol, omdat pijn en ongemak altijd een vertaling zijn van wat daar precies aan de basis van ligt. Plus ons denkvermogen wordt toch al te veel belast, en het lichaam al te veel verwaarloosd.
 
 De sessies zijn interactief; jouw medewerking is vereist, zoals bij voorbeeld met oefeningen die ik meegeef om thuis verder te doen. Het beste resultaat wordt bereikt wanneer jezelf ook verantwoordelijkheid opneemt.
 
@@ -37,7 +37,7 @@ Mijn grote voordeel is dat ik logisch - analytisch sterk ben, als hoogsensitief 
 
 Stress is trouwens altijd deel van mijn leven geweest. Opgroeien in de onvoorspelbare en onbetrouwbare wereld van narcisme; eens het huis uit een boeiende maar stressvolle internationale carrière van ruim 20 jaar; doe daar een persoonlijke rijke interessesfeer, leergierigheid en enthousiasme bij, en je hebt de perfecte mix voor een zware burn-out... zeker als je moeilijk "neen" kan zeggen tegen anderen, en jezelf wegcijfert. Dus ik moest voor mezelf op zoek naar methoden die mij konden ondersteunen, om zowel lichamelijk als geestelijk de druk het hoofd te kunnen blijven bieden. Deze rijke bron aan eigen levenservaringen vormt de basis voor wat ik jou kan aanrijken om jou doorheen jouw levensprocessen te begeleiden.    
   
-
+Voor **bedrijven** ga ik soortgelijk te werk. Samen met de preventie-adviseur of de HR-verantwoordelijke brengen we in kaart waar we dienen aan te werken. Mijn aanbod is divers: korte stoelmassages voor het personeel om lichamelijke klachten aan te pakken; in-house opleidingen om beter met de werkdruk om te leren gaan; begeleidingstrajecten als welzijnscoach in de strijd tegen langdurig absenteïsme en burn-outs,...
 
 
 # Missie  
@@ -62,18 +62,22 @@ Ik streef naar
 + met hart en denkvermogen in balans
 
 
-
 # Voor wie kan Manopura iets betekenen?
 
-+ voor mensen met steeds terugkerende (lichamelijke) klachten
-+ voor mensen die klinisch onderzocht zijn, maar waar geen medische oorzaak voor het ongemak werd gevonden
-+ voor mensen die chronische stress ervaren, en burn-out vòòr willen blijven
-+ voor mensen in burn-out, die terug energie willen herwinnen
-+ hoogsensitieve mensen (HSP) en HSS (High Sensation Seeker)
-+ voor vrouwen die door omstandigheden (werk of privé) zeer mentaal geworden zijn, en terug connectie willen maken met hun aangeboren intuïtie en aanvoelen.
-+ voor mensen op zoek naar diepgang, die intuïtief weten dat er meer is, en daarin begeleiding zoeken
-+ voor mensen die bereid zijn aan zichzelf te willen werken
+Voor elk individu, mens, klant, patiënt:    
++ met steeds terugkerende (lichamelijke) klachten   
++ die klinisch onderzocht is, maar waar geen medische oorzaak voor het ongemak werd gevonden   
++ met chronische stress en burn-out vòòr wil blijven   
++ in burn-out, die terug energie wil herwinnen   
++ hoogsensitieve mensen (HSP) en HSS (High Sensation Seeker)   
++ op zoek naar diepgang, die intuïtief weet dat er meer is, en daarin begeleiding zoekt   
++ die bereid is aan zichzelf te willen werken   
 
+Voor elke preventie-adviseur, HR-verantwoordelijke, CEO:
++ die het beste voor heeft met het personeel
++ die proactief werkt aan het welzijn van de medewerkers
++ die oog heeft voor ergonomie, werkdruk, fysieke belasting
++ die proactief beleid voert tegen langdurig absenteïsme en burn-out
 
 ---  
 
