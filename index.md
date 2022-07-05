@@ -74,12 +74,12 @@ Ik streef naar
 
 
 Volg ons op [**LinkedIn**](https://www.linkedin.com/in/manopura-shiatsu-stress-coaching-mindfulness-01b965172), [**MeWe**](https://mewe.com/p/manopura-komtotrust-mariandelathauwer) en op het [**Complementaire gezondheidszorg**](https://t.me/complementaire_gezondheidszorg) channel van Telegram  voor het laatste nieuws!    
-Facebook als social media hebben we verlaten omdat we niet meer achter de normen en waarden van dat bestuur staan.
+
 
 ---
 
   
-Manopura is lid van de Belgische Shiatsu Federatie. Sinds november 2021 zetel ik in de Raad van Bestuur.
+Manopura is lid van de Belgische Shiatsu Federatie. Sinds november 2021 ben ik lid van de Raad van Bestuur.
 
 
 [![belgische shiatsu federatie](images/bsf.png)](http://www.shiatsu.be)
