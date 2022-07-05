@@ -24,7 +24,7 @@ Daarom krijg je persoonlijke begeleiding, volledig op jouw maat en afgestemd op 
 
 ![fotofrontwebsitemanopura](images/fotofrontwebsitemanopura.png)   
 
-Ik ben Marian De Lathauwer, afgestudeerd als Licentiate in de Romaanse Taal- en Letterkunde, en meteen nadien de bedrijfswereld ingedoken. Gelijktijdig daarmee, volgde ik vele cursussen in o.a. mindfulness, heart-fulness, relaxatie, ademhalingstechnieken, stress coach, muziek, yoga, QiGong, oude healingsmethoden, emotioneel lichaamswerk, EFT, basis anatomie en pathologie, en een doorgedreven opleiding Shiatsu en Voetreflexologie.   
+Ik ben Marian De Lathauwer, afgestudeerd als Licentiate in de Romaanse Taal- en Letterkunde, en meteen nadien het bedrijfsleven ingedoken. Gelijktijdig daarmee, volgde ik vele cursussen in o.a. mindfulness, heart-fulness, relaxatie, ademhalingstechnieken, stress coach, muziek, yoga, QiGong, oude healingsmethoden, emotioneel lichaamswerk, EFT, basis anatomie en pathologie, en een doorgedreven opleiding Shiatsu en Voetreflexologie.   
 Dankzij deze verschillende disciplines heb ik nu unieke combinatie-mogelijkheden en verschillende invalshoeken om een situatie te bekijken.   
 
 Ik begin traditioneel met een intake gesprek, om jouw situatie goed te begrijpen. Ik werk zowel op lichaam (via Shiatsu, Voetreflexologie, Reiki, Yoga, QiGong) als op geest (coaching, oude healing methoden, meditatie). Het lichaam zelf speelt een cruciale rol, omdat pijn en ongemak altijd een vertaling zijn van wat daar precies aan de basis van ligt. Plus ons denkvermogen wordt toch al te veel belast, en het lichaam al te veel verwaarloosd.
