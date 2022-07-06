@@ -75,9 +75,9 @@ Voor elk individu, mens, klant, patiënt:
 
 Voor elke CEO, preventie-adviseur, HR-verantwoordelijke:
 + die het beste voor heeft met het personeel
-+ die proactief werkt aan het welzijn van de medewerkers
++ die proactief werkt aan het welzijn van de medewerkers en beleid voert tegen langdurig absenteïsme en burn-out   
 + die oog heeft voor ergonomie, werkdruk, fysieke belasting
-+ die proactief beleid voert tegen langdurig absenteïsme en burn-out
+
 
 ---  
 
