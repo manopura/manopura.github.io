@@ -77,7 +77,7 @@ Voor elke CEO, preventie-adviseur, HR-verantwoordelijke:
 + die het beste voor heeft met het personeel
 + die proactief werkt aan het welzijn van de medewerkers en beleid voert tegen langdurig absenteïsme en burn-out   
 + die oog heeft voor ergonomie, werkdruk, fysieke en mentale belasting
-+ die bij wijze van team building of ontspanning een origineel aanbod wil doen aan de medewerkers in de vorm van stoel massages, yoga, ...
++ die bij wijze van team building of ontspanning een origineel aanbod wil doen aan de medewerkers in de vorm van stoel massages, yoga,...
 
 
 ---  
