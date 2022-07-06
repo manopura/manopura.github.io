@@ -64,7 +64,7 @@ Ik streef naar
 
 # Voor wie kan Manopura iets betekenen?
 
-Voor elk individu, mens, klant, patiënt:    
+Voor elk individu, klant, patiënt, zorgverlener:    
 + met steeds terugkerende (lichamelijke) klachten   
 + die klinisch onderzocht is, maar waar geen medische oorzaak voor het ongemak werd gevonden   
 + met chronische stress en burn-out vòòr wil blijven   
