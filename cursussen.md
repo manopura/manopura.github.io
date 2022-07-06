@@ -4,8 +4,7 @@ menu: cursussen
 ---
 # Cursussen
 
-**Voor data en uren, kijk ook onder Praktisch, Agenda.   
-Of schrijf je in op onze nieuwsbrief, zo blijf je altijd bij! **
+**Voor data en uren, kijk ook onder Praktisch, Agenda. Of schrijf je in op onze nieuwsbrief, zo blijf je altijd bij!**
 
 **MINDFULNESS**
 
