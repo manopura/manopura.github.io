@@ -45,8 +45,8 @@ Ben je niet zo een groepsmens, en wil je liever persoonlijke begeleiding? dat ka
 
 
 - Wekelijkse les van 1:15u
-- 12€ per les
-- elke donderdagavond 19u00 - 20u15 in de polyvalente zaal van de [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be) Wetteren. **OOK** tijdens schoolvakanties!  
+- 15€ per les
+- elke donderdagavond in de polyvalente zaal van de [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be) Wetteren. **OOK** tijdens schoolvakanties!  Het aanvangstuur kan wisselen volgens de noden van de groep. Vraag het na, of schrijf je in voor de nieuwsbrief om het recentste nieuws te ontvangen. 
 - elke vrijdagmorgen 10:00 - 11:15 in [**Praktijk Salutem Lochristi**](https://praktijksalutem.be). **NIET** tijdens schoolvakanties!
 - 10 beurtenkaart mogelijk   
 Registreren verplicht! Stuur een mailtje om in te schrijven. 
