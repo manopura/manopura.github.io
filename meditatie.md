@@ -37,7 +37,7 @@ Voor meer uitleg daarover, zie ook [**cursussen**](http://www.manopura.be/cursus
   * nabespreking van de ervaringen
    
 
-Elke les kost 12€. Je kan ook een 10 beurten kaart kopen (110€).
+Elke les kost 15€. Je kan ook een 10 beurten kaart kopen, die blijft een half jaar geldig.
 
 **Registreren noodzakelijk**: stuur ons een [mailtje](mailto:marian@manopura.be)   
 Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
