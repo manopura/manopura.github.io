@@ -19,7 +19,7 @@ Je leert er verschillende methodes aan, je krijgt de tijd om ze goed in te oefen
 
 Deze methode is sinds de jaren 70 wetenschappelijk onderzocht geweest en heeft zijn nut bewezen als vorm van cognitieve gedragstherapie, tegen depressies en herval ervan, tegen langdurige stress, etc. Zij wordt inmiddels door verschillende artsen en in verschillende ziekenhuizen succesvol toegepast. Denk maar aan de programma's MBCT, MBSR.
 
-Kijk voor data onder Praktisch, Agenda. 
+
 Inschrijven [**Ja, ik neem deel!**](mailto:marian@manopura.be)      
 1 avond per week, 8 weken in totaal.    
 Kostprijs: 300€ voor de 8 weken (= 20 lesuren).   
@@ -120,7 +120,7 @@ Het is aangeraden de 10 lessen van een deel in zijn totaliteit te volgen omdat z
 Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer dat deel herhaald wordt.  
 
 - online of offline
-- 12€ per les; 110€ per deel van 10 lessen
+- 15€ per les; 110€ per deel van 10 lessen
 - 30 weken voor de 3 delen = jaartraject
 
 Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
@@ -140,7 +140,7 @@ Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het 
 
 Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te hebben.    
 
-- 12€ per les   
+- 15€ per les   
 Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
 
 ---
@@ -154,7 +154,7 @@ Sinds corona weten we dat ons immuunsysteem van cruciaal belang is om ons gezond
 
 - webinar (online)   
 - verschillende inzichten, tips en lichaamsoefeningen om je immuniteit te versterken 
-- kostprijs 20€   
+- kostprijs 25€   
 Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
 
 ---
@@ -179,7 +179,7 @@ Een greep uit de thema's:
 
  
 Data: 1 zaterdag per maand van 10-16u:     
-Kostprijs: 80€ per dag.    
+Kostprijs: 90€ per dag.    
 Best lessenpakket in zijn totaliteit te volgen om alles goed te begrijpen.   
 
 Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact! 
