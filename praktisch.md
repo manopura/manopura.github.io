@@ -37,12 +37,12 @@ Yoga privé-les:
 **Groepslessen**:   
 **Meditatie**      
 60 min - 15 euro per persoon  
-Gelieve uw aanwezigheid te bevestigen op marian@manopura.be    
+Gelieve uw aanwezigheid te bevestigen via marian@manopura.be    
 Deze groepsles gaat door in de praktijkruimte van Manopura.   
 
 **5 elementen Yoga**   
 75 min - 15 euro per persoon   
-Gelieve uw aanwezigheid te registreren via de agenda op de website van [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be).       
+Gelieve uw aanwezigheid te bevestigen via marian@manopura.be 
 Deze groepsles gaat door in de polyvalente ruimte van Polikliniek Rode Heuvel.   
 
 
@@ -52,7 +52,7 @@ Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
 
 ### Agenda
    
-**SUMMER SPECIAL: Yoga + meditatie oefening en extra uitleg over de 5 elementen leer** Op donderdagen 14/7, 28/7, 4/8, 11/8, 18/8 van 19u tot 21u in de polyvalente zaal van de Polikliniek Rode Heuvel, met zicht op de Schelde. Per les 25€. Je leert kennis maken met de dynamiek van de 5 elementen, de opbouw van energie en veerkracht, en tevens ontspanning voor lichaam en geest. Elke les wordt een apart element in de kijker gezet. Voorkennis is niet vereist. Vooraf inschrijven noodzakelijk, de plaatsen zijn beperkt. 
+**SUMMER SPECIAL: Yoga + meditatie oefening + extra uitleg over de 5 elementen leer** Op donderdagen 14/7, 28/7, 4/8, 11/8, 18/8 van 19u tot 20u30 in de polyvalente zaal van de Polikliniek Rode Heuvel, met zicht op de Schelde. Per les 25€. Je leert kennis maken met de dynamiek van de 5 elementen, de opbouw van energie en veerkracht, en tevens ontspanning voor lichaam en geest. Elke les wordt een apart element in de kijker gezet. Voorkennis is niet vereist. Vooraf inschrijven noodzakelijk, de plaatsen zijn beperkt. 
 
 **Mindfulness 8-weekse opleiding in de Polikliniek Rode Heuvel**: nieuwe reeks vanaf donderdag 15 september 17u30-20u. Voor de 8 lessen van 2,5 uur: 300€. Geen voorkennis vereist. Vooraf inschrijven noodzakelijk.   
 
@@ -62,7 +62,7 @@ Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
 
 **OpenReiki oefenmoment** in groep met andere mensen die al dan niet een Reiki graad hebben. Samenkomen, ervaringen delen, vragen stellen, bijleren,... 23 augstus om 19u. Inkom gratis, of vrije bijdrage.    
 
-**Open Meditatie**: 6 juli 19u30; 24 augustus 19u30. Inkom gratis, of vrije bijdrage. 
+**Open Meditatie**: 24 augustus 19u30. Inkom gratis, of vrije bijdrage. 
 
 
 ---
