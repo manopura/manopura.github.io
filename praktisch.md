@@ -50,14 +50,12 @@ Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
 ---
 
 ### Agenda
-   
-**SUMMER SPECIAL: Yoga + meditatie oefening + extra uitleg over de 5 elementen leer** Op donderdagen 14/7, 28/7, 4/8, 11/8, 18/8 van 19u tot 20u30 in de polyvalente zaal van de Polikliniek Rode Heuvel, met zicht op de Schelde. Per les 25€. Je leert kennis maken met de dynamiek van de 5 elementen, de opbouw van energie en veerkracht, en tevens ontspanning voor lichaam en geest. Elke les wordt een apart element in de kijker gezet. Voorkennis is niet vereist. Vooraf inschrijven noodzakelijk, de plaatsen zijn beperkt. 
 
-**Mindfulness 8-weekse opleiding in de Polikliniek Rode Heuvel**: nieuwe reeks vanaf donderdag 22 september 19u00-21u30. Voor de 8 lessen van 2,5 uur: 300€. Geen voorkennis vereist. Vooraf inschrijven noodzakelijk.   
+**Mindfulness 8-weekse opleiding in de Polikliniek Rode Heuvel**: nieuwe reeks vanaf donderdag 22 september 19u00-21u30. Voor de 8 lessen van 2,5 uur: 330€. Geen voorkennis vereist. Vooraf inschrijven noodzakelijk.   
 
-**Reiki 1 opleiding en inwijding**: zaterdag 29 oktober 10-18u in de praktijk van Manopura. Voor de hele dag, cursusmateriaal en lunch: 150€   
+**Reiki 1 opleiding en inwijding**: zaterdag 29 oktober 10-18u in de praktijk van Manopura. Voor de hele dag, cursusmateriaal en lunch: 155€   
 
-**Reiki2 opleiding en inwijding**: zaterdag 27 aug 10u - 18u in de praktijk van Manopura. Voor de hele dag, cursusmateriaal en lunch: 150€    
+**Reiki2 opleiding en inwijding**: vrijdag 4 november 10u - 18u in de praktijk van Manopura. Voor de hele dag, cursusmateriaal en lunch: 155€    
    
 **Mindful Yoga volgens de 5 elementen**: donderdagavond 17u30 - 18u45, start donderdag 22 september in de polyvalente zaal van Polikliniek Rode Heuvel. Per les 15€. Geen voorkennis vereist. Vooraf inschrijven wenselijk.    
 
