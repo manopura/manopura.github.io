@@ -59,6 +59,8 @@ Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
    
 **Mindful Yoga volgens de 5 elementen**: donderdagavond 17u30 - 18u45, start donderdag 22 september in de polyvalente zaal van Polikliniek Rode Heuvel. Per les 15€. Geen voorkennis vereist. Vooraf inschrijven wenselijk.    
 
+**Kom tot rust meditatie groepsessie**: maandelijks 1 keer samenkomen om te (leren) mediteren. 4/10, 8/11, 6/12 telkens om 19u30 in de praktijkruimte van Manopura.      
+
 
 ---
 
