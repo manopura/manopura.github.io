@@ -51,7 +51,7 @@ Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
 
 ### Agenda
 
-**Mindfulness 8-weekse opleiding in de Polikliniek Rode Heuvel**: nieuwe reeks vanaf donderdag 22 september 19u00-21u30. Voor de 8 lessen van 2,5 uur: 300€. Geen voorkennis vereist. Vooraf inschrijven noodzakelijk.   
+**Mindfulness 8-weekse opleiding in de Polikliniek Rode Heuvel**: nieuwe reeks vanaf donderdag 22 september 19u00-21u30. Voor de 8 lessen van 2,5 uur: 300€. Geen voorkennis vereist. Vooraf inschrijven noodzakelijk. Volgende reeksen starten in januari tot maart (12/1/23 - 9/3/23) en in april na de Paasvakantie tot juni (20/4/23 - 15/6/23).
 
 **Reiki 1 opleiding en inwijding**: zaterdag 29 oktober 10-18u in de praktijk van Manopura. Voor de hele dag, cursusmateriaal en lunch: 155€   
 
