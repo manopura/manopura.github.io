@@ -24,7 +24,7 @@ Voetreflexologie:
 60 min - 70 euro  
 75 min - 85 euro
 
-Reiki:   
+Reiki behandeling:   
 60 min - 65 euro  
 90 min - 95 euro
 
