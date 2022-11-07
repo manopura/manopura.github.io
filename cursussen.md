@@ -22,7 +22,7 @@ Deze methode is sinds de jaren 70 wetenschappelijk onderzocht geweest en heeft z
 
 Inschrijven [**Ja, ik neem deel!**](mailto:marian@manopura.be)      
 1 avond per week, 8 weken in totaal.    
-Kostprijs: 300€ voor de 8 weken (= 20 lesuren).   
+Kostprijs: 320€ voor de 8 weken (= 20 lesuren).   
 
 
 ---
