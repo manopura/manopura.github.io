@@ -46,7 +46,7 @@ Ben je niet zo een groepsmens, en wil je liever persoonlijke begeleiding? dat ka
 
 - Wekelijkse les van 1:15u
 - 15€ per les
-- elke donderdagavond in de polyvalente zaal van de [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be) Wetteren. **OOK** tijdens schoolvakanties!  Het aanvangstuur kan wisselen volgens de noden van de groep. Vraag het na, of schrijf je in voor de nieuwsbrief om het recentste nieuws te ontvangen. 
+- elke donderdagavond in de polyvalente zaal van de [**Polikliniek Rode Heuvel**](https://www.polikliniek-rodeheuvel.be) Wetteren. Het aanvangstuur kan wisselen volgens de noden van de groep. Vraag het na, of schrijf je in voor de nieuwsbrief om het recentste nieuws te ontvangen. 
 - 10 beurtenkaart mogelijk   
 Registreren verplicht! Stuur een mailtje om in te schrijven. 
    
@@ -85,7 +85,7 @@ Kostprijs groeps-oefensessie: vrije bijdrage
 Deze opleiding wordt momenteel nog niet gegeven, omdat ikzelf als Reiki Master nog in evolutie ben.
 
 
-Alle Reiki-opleidingen worden voorzien op aanvraag. Ik werk met kleine groepjes van 4 mensen. Heb je interesse in Reiki 1 of Reiki 2, stuur ons een mailtje! Van zodra er 4 mensen zijn, wordt de opleiding voorzien. In de nieuwsbrief worden de data doorgegeven. Abonneer je op de nieuwsbrief via de laatste pagina onder Contact.
+Alle Reiki-opleidingen worden voorzien op aanvraag. Ik werk met kleine groepjes van 4 mensen. Heb je interesse in Reiki 1 of Reiki 2, stuur ons een mailtje! Van zodra er 4 mensen zijn, wordt de opleiding voorzien. In de nieuwsbrief worden de data doorgegeven. 
 
 ---
 **KOM TOT RUST**  
@@ -122,7 +122,6 @@ Kan je eens niet komen, dan kan je die les inhalen bij een volgende keer wanneer
 - 15€ per les; 110€ per deel van 10 lessen
 - 30 weken voor de 3 delen = jaartraject
 
-Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
 
 Voor enkele getuigenissen, ga naar [**meditatie**](http://www.manopura.be/meditatie.html)
 
@@ -140,7 +139,7 @@ Nadien volgt een meditatie, telkens per thema per seizoen. Bij voorbeeld in het 
 Het is daarom belangrijk ervaring met mediteren als techniek reeds verworven te hebben.    
 
 - 15€ per les   
-Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
+
 
 ---
 
@@ -181,7 +180,6 @@ Data: 1 zaterdag per maand van 10-16u:
 Kostprijs: 90€ per dag.    
 Best lessenpakket in zijn totaliteit te volgen om alles goed te begrijpen.   
 
-Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact! 
    
    
 
