@@ -90,6 +90,7 @@ Volg ons op [**LinkedIn**](https://www.linkedin.com/in/manopura-shiatsu-stress-c
 
   
 Manopura is lid van de Belgische Shiatsu Federatie. Sinds november 2021 ben ik lid van de Raad van Bestuur.
+Manopura is tevens inloophuis voor Samenzorg. 
 
 
 [![belgische shiatsu federatie](images/bsf.png)](http://www.shiatsu.be)
