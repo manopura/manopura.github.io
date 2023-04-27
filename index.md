@@ -91,8 +91,8 @@ Volg ons op [**LinkedIn**](https://www.linkedin.com/in/manopura-shiatsu-stress-c
   
 Manopura is lid van de Belgische Shiatsu Federatie. Sinds november 2021 ben ik lid van de Raad van Bestuur.  
 
-Manopura is tevens **inloophuis voor Samenzorg**. Dat wil zeggen dat je tijdens bepaalde uren even kan binnen wandelen voor een gesprek rond je bezorgdheden of noden, of gewoon om even te verbinden. Deze noden of bezorgdheden kunnen medisch zijn, mentaal, emotioneel of spiritueel.
-Specifieke inloophuis-uren: maandagavond 18-20u; vrijdagochtend 9-11u.    
+Manopura is tevens **inloophuis voor Samenzorg**. Dat wil zeggen dat je tijdens bepaalde uren even kan binnenwandelen voor een gesprek rond je bezorgdheden of noden, of gewoon om even te verbinden. Deze noden of bezorgdheden kunnen medisch zijn, mentaal, emotioneel of spiritueel.
+Specifieke inloophuis-uren: maandagavond 18-20u; vrijdagochtend 9-11u. Het gesprek is gratis.    
 
 
 [![belgische shiatsu federatie](images/bsf.png)](http://www.shiatsu.be)
