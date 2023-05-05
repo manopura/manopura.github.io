@@ -21,8 +21,8 @@ via lichte druk op bepaalde punten in het lichaam wordt de doorstroom van de ene
 **Voetreflexologie** 
 zeer fysiek drukken en inwerken op de voeten alleen, terwijl je rustig neerligt op de futon. Om zo te zeggen, een Shiatsu behandeling in het klein, want er wordt alleen op de voeten gewerkt en niet op het gehele lichaam. Je kan rustig blijven liggen. De behandeling is daarom niet minder intensief, deugddoend of krachtdadig. Het effect ervan werkt door op het gehele lichaam, geest en energie.   
 
-“Minder lichamelijk”
-**Reiki**
+“Minder lichamelijk”   
+**Reiki**   
 je ligt comfortabel neer op een behandeltafel, 
 terwijl ik intuïtief de handen laat rusten op plaatsen in het lichaam waar behandeling nodig is. 
 Er is dus minder ‘actie’ dan bij Shiatsu of voetreflex, je kan makkelijker zelf in een rustige ontspannen staat komen. 
@@ -40,10 +40,9 @@ Bij voorbeeld: het wordt ondertussen al couranter aangenomen dat je meeleeft en 
 
 
 “Minst lichamelijk” - meest mentaal   
-
 **Mindfulness**   
 je kan kiezen om de 8-weekse groepsopleiding te volgen, of ze in 1 op 1 sessies te doen. 
 Je leert oefeningen aan om bewuster in het leven te staan, en beter op te merken welke automatische processen er spelen op mentaal/emotioneel niveau. Hierdoor krijg je meer inzicht in jezelf. De oefeningen zijn deels praktisch, deels meditatie. Hoe meer je de oefeningen doet, hoe meer je inwendige rust kan ervaren. Je wordt volledig begeleid in dit proces. 
 
-**Coaching**
+**Coaching**   
 We onderzoeken en bespreken samen de thematiek die je aanbrengt. Ook hier kan het eender wat zijn, lichamelijk ongemak, emotioneel, sociaal, spiritueel,… Door samen naar iets te kijken, en met de verschillende invalshoeken vanuit mijn brede levenservaring, kan je tot inzicht komen om een problematiek aan te pakken of op te lossen. 
