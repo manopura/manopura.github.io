@@ -35,7 +35,7 @@ om mentaal bewust te maken wat in het onbewuste aan het spelen is.
 Jij kiest of je rustig in de zetel blijft zitten, of liever neerligt op de futon.    
 De behandeling verloopt grotendeels in stilte. Jij komt met een thema waarrond je wil laten werken. Dat kan zeer uiteenlopend zijn (lichamelijke klachten die niet overgaan, moeilijke situatie waar je je in bevindt, moeilijke relatie met specifieke mensen, iets wat je ervaart dat je in de weg zit om voluit te kunnen leven,…)
 In stilte bekijk ik alle relevantie informatie rond dat thema in je brede energetische veld en wordt zo heling tot stand gebracht. 
-Deze behandelvorm zou je kunnen ervaren als minst ‘tastbaar’, omdat diepgaander onbewuste processen aangeraakt worden die je niet in je bewuste aandacht kan terug vinden. 
+Deze behandelvorm zou je kunnen ervaren als minst ‘tastbaar’, omdat diepgaander onbewuste processen aangeraakt worden die je niet in je bewuste aandacht kan terug vinden.    
 Bij voorbeeld: het wordt ondertussen al couranter aangenomen dat je meeleeft en meevoelt met je moeder wanneer je nog in haar buik aan het groeien bent. Indien je moeder tijdens jouw zwangerschap bepaalde moeilijke emoties ondergaat, zoals verdriet om verlies, of boosheid of angst, dan draag je dat mee in je energie. Later, na je geboorte en tijdens de rest van je leven, kan het zijn dat je onbestemde emoties van verdriet, boosheid, angst je overvallen, zonder dat je bewust kan aangeven van waar het precies komt. Ook dit zijn vormen van ‘blokkades’ die energetisch te behandelen vallen, via deze methode.    
 
 
