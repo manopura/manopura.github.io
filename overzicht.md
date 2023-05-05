@@ -5,7 +5,7 @@ menu: overzicht
 
 Overzicht en kadering van de soorten behandelingen die je bij mij kan volgen.   
 
-In eerste instantie zijn het allemaal energetische behandelingen. Wat wil dat zeggen?   
+In eerste instantie zijn het allemaal ***energetische*** behandelingen. Wat wil dat zeggen?   
 Alles in energie.    
 Lees er gerust de theorie van Einstein op na. E=mc2. (Energie = massa vermenigvuldigd met het kwadraat van lichtsnelheid). Massa en energie zijn gelijk.    
 
