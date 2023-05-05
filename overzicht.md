@@ -18,7 +18,7 @@ Ik zou ze kunnen indelen in een rangorde van “meer lichamelijk” naar “meer
 **Shiatsu**    
 via lichte druk op bepaalde punten in het lichaam wordt de doorstroom van de energie in de meridianen gestimuleerd, om een blokkade of een stagnatie op te heffen. De behandeling gebeurt op een stoel en/of op een futon. Je houdt je kleren aan. Als klant ervaar je deze behandeling als ‘massage’ of als soortgelijk aan wat een kinesist of een osteopaat met je doet. De werking en achtergrond zijn echter anders. Mijn ervaring leert dat veel klanten deze verschillende vormen van ‘lichaamswerk’ combineren, èn bij een kinesist gaan, èn/of bij een osteopaat langs gaan, èn ook een Shiatsu behandeling boeken. Net omdat een ‘fysiek’ probleem het best vanuit verschillende invalshoeken bekeken en behandeld wordt. Indien veelvuldige behandelingen van 1 soort niet het gewenste resultaat opleveren en de klacht blijft of terugkomt, dan heeft men de hoofdoorzaak niet gevonden of aangepakt. Die oorzaak kan energetisch zijn in de ruimste zin (mentaal, emotioneel, sociaal, spiritueel,…)      
 
-**Voetreflexologie** 
+**Voetreflexologie**    
 zeer fysiek drukken en inwerken op de voeten alleen, terwijl je rustig neerligt op de futon. Om zo te zeggen, een Shiatsu behandeling in het klein, want er wordt alleen op de voeten gewerkt en niet op het gehele lichaam. Je kan rustig blijven liggen. De behandeling is daarom niet minder intensief, deugddoend of krachtdadig. Het effect ervan werkt door op het gehele lichaam, geest en energie.   
 
 “Minder lichamelijk”   
