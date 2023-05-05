@@ -7,7 +7,8 @@ Overzicht en kadering van de soorten behandelingen die je bij mij kan volgen.
 
 In eerste instantie zijn het allemaal ***energetische*** behandelingen. Wat wil dat zeggen?   
 Alles in energie.    
-Lees er gerust de theorie van Einstein op na. E=mc2. (Energie = massa vermenigvuldigd met het kwadraat van lichtsnelheid). Massa en energie zijn gelijk.    
+Lees er gerust de theorie van Einstein op na.    
+E=mc2. (Energie = massa vermenigvuldigd met het kwadraat van lichtsnelheid). Massa en energie zijn gelijk.    
 
 Dat maakt dat energieën elkaar constant beïnvloeden, elke massa beïnvloedt een andere, of het nu een grote of een kleine is. Denk maar aan de maan die het water van de oceanen beïnvloedt in eb en vloed; de aarde is omgeven door een electro-magnetisch veld, met een magnetisch Noorden. Dat veld beïnvloedt alle leven op aarde, en wordt op zijn beurt beïnvloed door de andere planeten en de energetische uitbarstingen van de zon (denk maar aan verhoging van het Noorderlicht in onze atmosfeer bij zonne-erupties). Elk mens is omringd door een eigen kleiner electro-magnetisch veld, waardoor elk mens een ander mens constant beïnvloedt. Binnenin de mens wordt de energie van het elektromagnetisch veld gekanaliseerd in bepaalde banen, zogenaamde meridianen of energiebanen. 
 Het is op die kanalen en in dat elektromagnetisch veld dat mijn behandelingen zich situeren.   
