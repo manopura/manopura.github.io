@@ -1,3 +1,11 @@
+---
+layout: blog
+title:  "Knaldrang"
+date:   2023-05-01
+tags: [gezondheid]
+---
+
+
 In de nieuwsbrief die ik van Unizo kreeg, en tevens in een nieuwsitem van Securex op LinkedIn, staat te lezen dat zowel bij werknemers als bij ondernemers het niet goed gaat met de gemiddelde lichamelijke en geestelijke gezondheid, te veel stress en vermoeidheid, en dat langdurig absenteïsme in de lift zit. 
 Inzetten op preventie is dus bittere noodzaak.   
 
