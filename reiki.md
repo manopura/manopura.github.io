@@ -13,7 +13,7 @@ Ik pas Reiki voornamelijk toe op mensen die Shiatsu als te ingrijpend of onaange
 Je kan ook uiteraard heel bewust voor een Reiki sessie kiezen. 
 Wat brengt een Reiki behandeling je? dat is voor iedereen anders. Het kan ontspanning brengen, inzicht in een bepaalde zaak die je bezig houdt, duidelijkheid in het nemen van volgende stappen, verrijking in persoonlijke en spirituele groei,... 
 
-Naast de gebruikelijke behandelingen, worden er ook regelmatig infosessies gehouden als kennismaking wat Reiki precies is, met een korte uitleg en de mogelijkheid even Reiki te ontvangen, zodat je kan aanvoelen wat het je brengt en of dit iets voor jou is. 
+Naast de gebruikelijke behandelingen, worden er ook regelmatig **infosessies en Open Reiki** gehouden als kennismaking wat Reiki precies is, met een korte uitleg en de mogelijkheid even Reiki te ontvangen, zodat je kan aanvoelen wat het je brengt en of dit iets voor jou is. Iedereen is hierop welkom, ongeacht of en welke Reiki graad je hebt.
 
 Als je besloten hebt dat Reiki iets voor jou is, dat je er meer wil over weten en zelf wil mee werken, als instrument naar verdere persoonlijke groei en ontwikkeling, dan is de **opleiding** voor Reiki 1e graad zeker iets voor jou!   
 Deze opleiding/ inwijdingen worden verspreid over het jaar gegeven. Schrijf je in voor de nieuwsbrief om de recentste info te ontvangen!    
