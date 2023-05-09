@@ -17,7 +17,7 @@ Wacht niet tot een burn-out je velt, werk preventief!
 Dit zijn een paar redenen waarom een cursus mindfulness voor jou op dit moment waardevol zou kunnen zijn. 
 Je leert er verschillende methodes aan, je krijgt de tijd om ze goed in te oefenen en je eigen te maken, zodat je na de cursus er nog steeds mee verder kan en niet terug in je oude patronen hervalt.
 
-Deze methode is sinds de jaren 70 wetenschappelijk onderzocht geweest en heeft zijn nut bewezen als vorm van cognitieve gedragstherapie, tegen depressies en herval ervan, tegen langdurige stress, etc. Zij wordt inmiddels door verschillende artsen en in verschillende ziekenhuizen succesvol toegepast. Denk maar aan de programma's MBCT, MBSR.
+Deze methode is sinds de jaren 70 wetenschappelijk onderzocht geweest en heeft zijn nut bewezen als vorm van cognitieve gedragstherapie, tegen depressies en herval ervan, tegen langdurige stress, etc. Zij wordt inmiddels door verschillende artsen en in verschillende ziekenhuizen succesvol toegepast. Denk maar aan de programma's MBCT (Mindfulness Based Cognitive Therapy) en MBSR (Mindfulness Based Stress Reduction).
 
 
 Inschrijven [**Ja, ik neem deel!**](mailto:marian@manopura.be)      
