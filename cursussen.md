@@ -27,7 +27,7 @@ Kostprijs: 320€ voor de 8 weken (= 20 lesuren).
 
 ---
 
-**5 ELEMENTEN YOGA**
+**5 ELEMENTEN YOGA/ MINDFUL YOGA**
 
 Deze vorm van Yoga nodigt uit om te verstillen in lichaam en geest. We zijn al druk druk druk genoeg!   
 Het is gebaseerd op de 5 elementen-leer van het Oosten. Het is geen hatha yoga, geen yin yoga,... je hoeft niets te kennen over de 5 elementen. De nodige uitleg geef ik wel tijdens de lessen zelf. Het is een vorm van lichaamsbeweging die de nadruk legt op vitaliteit. Hoe vitaal, hoe krachtig voel je je in je lichaam. Het gaat niet over uithouding of spierkracht. Het is geen powertraining. Het is een leren stilstaan bij wat je voelt wanneer je lichaam bepaalde stretchings uitvoert. Er is dus ook geen prestatiedrang, geen vergelijking met anderen. Jij voelt jouw lichaam. Dat van een ander kan je niet voelen. Jij voelt waar de oefening jou naartoe brengt. Door meer te voelen met aandacht, en te combineren met je ademhaling, kweek je meer lichaamsbewustzijn. Je leert jezelf en je lichaam beter kennen. En zo bouw je kracht/vitaliteit op.   
