@@ -23,6 +23,6 @@ Als je al een Reiki 1e graad hebt, ben je ook welkom voor de inwijdingen, les en
 
 [**Ja, ik wil meer weten!**](mailto:marian@manopura.be)
 
-Schrijf je in op onze nieuwsbrief, op de laatste pagina bij Contact! Zo blijf je bij wanneer er cursus door gaat!   
+Schrijf je in op onze nieuwsbrief, op de laatste pagina bij Contact! Zo blijf je bij wanneer er een cursus of infosessie door gaat!   
 
 ![reiki](images/reiki.png)
