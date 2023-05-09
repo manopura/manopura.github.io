@@ -15,7 +15,12 @@ Tijdens de behandelingen in mijn praktijk zie ik meer en meer mensen worstelen m
 Op zich zijn deze waardevol, maar het lichaam zelf komt niet (genoeg) tot rust, het blijft steeds actief. 
 Hoe maak je je hoofd leeg? Hoe ga je om met steeds terugkerende zorgen en spanning? 
 
-Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat (goed)? Wat houdt mediteren precies in? Misschien heb je een extra motivator nodig om op te starten of te herstarten. Daarom zijn er vanaf nu deze geleide meditatie sessies.
+Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat (goed)? Wat houdt mediteren precies in? Misschien heb je een extra motivator nodig om op te starten of te herstarten. 
+
+Bovendien zijn er op internet vele filmpjes en heb je soorten apps die je helpen mediteren. Die zijn zeker waardevol, maar voor iemand die wil opstarten, of wie al een tijdje bezig is, blijft vaak met zijn vragen zitten. Er is een tekort aan persoonlijke begeleiding, een klankbord, een bredere context, een community. Leren van elkaar is minstens even waardevol!
+Daarom zijn er deze geleide meditatie sessies in groep.
+
+
 
 
 **Voor wie?**
