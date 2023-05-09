@@ -28,6 +28,10 @@ Reiki behandeling:
 60 min - 65 euro  
 90 min - 95 euro
 
+PsychoDynamica:
+60 min - 65 euro  
+90 min - 95 euro   
+
 Yoga privé-les:   
 30 min - 35 euro     
 60 min - 50 euro   
