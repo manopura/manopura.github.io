@@ -7,5 +7,5 @@ menu: overzicht
 
 
 
-
+![aurakaart](images/aurakaart.pdf)
 
