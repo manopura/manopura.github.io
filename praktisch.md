@@ -38,12 +38,10 @@ Yoga privé-les:
 
 
 **Groepslessen**:   
-**Meditatie**      
-60 min - 15 euro per persoon  
-Gelieve uw aanwezigheid te bevestigen via marian@manopura.be    
-Deze groepsles gaat door in de praktijkruimte van Manopura.   
+**Mindfulness**    
+Voor de 8weekse opleiding: 320 euro...
 
-**5 elementen Yoga**   
+**5 elementen Yoga/ Mindful Yoga**   
 75 min - 15 euro per persoon   
 Gelieve uw aanwezigheid te bevestigen via marian@manopura.be 
 Deze groepsles gaat door in de polyvalente ruimte van Polikliniek Rode Heuvel.   
