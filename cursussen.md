@@ -34,7 +34,7 @@ Het is gebaseerd op de 5 elementen-leer van het Oosten. Het is geen hatha yoga, 
 
 Voorbeeld 1: Merk je op dat je innerlijke criticus met je aan de haal gaat? merk je je eigen grenzen? wat doet dat met je? wil je er toch over? hoe voelt het om over die grenzen te gaan? etc. En bij het uitoefenen van de bewegingen stimuleer je je lichaam in zijn vitale krachten, die alle processen in je lichaam en geest aansturen.   
 
-Voorbeeld 2: de verschillende elementen werken het krachtigst per seizoen. De winter, dat is de periode van het element Water. Water regeert o.a. over de lichaamssystemen van nieren en blaas. Ook van knieën, botten en zenuwstelsel. Oefeningen op het element Water helpen deze systemen dus te ondersteunen. Alle oefeningen worden zittend/liggend op de mat gedaan, indien nodig met hulp van kussens.
+Voorbeeld 2: de verschillende elementen werken het krachtigst per seizoen. De winter, dat is de periode van het element Water. Water regeert o.a. over de lichaamssystemen van nieren en blaas. Ook van knieën, botten en zenuwstelsel. Oefeningen op het element Water helpen deze systemen dus te ondersteunen. Alle oefeningen worden zittend/liggend of staand op de mat gedaan, indien nodig met hulp van kussens en blokjes. Er zijn er altijd enkele extra in voorraad. 
 
 Breng je eigen yoga matje, kussen of blokje, en dekentje mee.   
 
