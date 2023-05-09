@@ -29,7 +29,7 @@ terwijl ik intuïtief de handen laat rusten op plaatsen in het lichaam waar beha
 Er is dus minder ‘actie’ dan bij Shiatsu of voetreflex, je kan makkelijker zelf in een rustige ontspannen staat komen. 
 De behandeling is even effectief als alle andere. 
 Aan het einde van de sessie wordt samen besproken wat er in de behandeling naar boven is gekomen, 
-om mentaal bewust te maken wat in het onbewuste aan het spelen is.   
+om mentaal bewust te maken wat in het onbewuste aan het spelen is, zodat verdere verwerking en integratie mogelijk worden.   
 
 “Minst lichamelijk” - meest oorzakelijk   
 **PsychoDynamica**    
