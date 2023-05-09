@@ -28,6 +28,7 @@ Daarom zijn er deze geleide meditatie sessies in groep.
 * Voor al wie reeds van mediteren gehoord heeft, maar niet precies weet hoe er zelf mee te starten
 * Voor al wie reeds meditatie ervaring heeft, en graag in een kleine groep extra oefening en begeleiding krijgt
 * Voor al wie vroeger reeds gemediteerd heeft, en de draad terug wil oppakken.
+* Voor wie de opleiding Mindfulness volgde en continuïteit in de meditatie-praktijk zoekt
 
 
 **Wat houdt het in?**
