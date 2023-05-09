@@ -28,7 +28,7 @@ Reiki behandeling:
 60 min - 65 euro  
 90 min - 95 euro
 
-PsychoDynamica:
+PsychoDynamica:   
 60 min - 65 euro  
 90 min - 95 euro   
 
