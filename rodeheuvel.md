@@ -7,8 +7,7 @@ menu: rodeheuvel
 Hier wordt door het team van artsen en paramedici een holistische benadering nagestreefd, 
 waarbij de gezondheid van de patiënt vanuit verschillende disciplines wordt bekeken om de balans te kunnen herstellen.
 
-Ikzelf ben daar op donderdagavond beschikbaar voor consultaties en groepslessen.   
-Groepslessen in Mindfulness en 5 elementen yoga.    
+Ikzelf ben daar op donderdagavond beschikbaar voor groepslessen in Mindfulness en 5 elementen yoga, of Mindful yoga.    
 Meer info over de lessen zelf onder rubriek "Cursussen".   
 Registratie vooraf voor de lessen is verplicht.   
 
