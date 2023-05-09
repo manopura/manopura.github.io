@@ -9,7 +9,7 @@ tags: [gezondheid]
 In de nieuwsbrief die ik van Unizo kreeg, en tevens in een nieuwsitem van Securex op LinkedIn, staat te lezen dat zowel bij werknemers als bij ondernemers het niet goed gaat met de gemiddelde lichamelijke en geestelijke gezondheid, te veel stress en vermoeidheid, en dat langdurig absenteïsme in de lift zit. 
 Inzetten op preventie is dus bittere noodzaak.   
 
-Hoewel Unizo/Liantis er enigszins ludiek mee uitpakt met hun 'mok'actie (zie foto), is dat voor mij de vinger op de pijnlijke wond:
+Hoewel Unizo/Liantis er enigszins ludiek mee uitpakt met hun 'mok'actie, is dat voor mij de vinger op de pijnlijke wond:
 🆆🅾🆁🅺 🅷🅰🆁🅳, 🅿🅻🅰🆈 🅷🅰🆁🅳(🅴🆁)   
 
 🧐Is dat wel zo een goed motto?    
