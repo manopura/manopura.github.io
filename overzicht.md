@@ -46,4 +46,5 @@ je kan kiezen om de 8-weekse groepsopleiding te volgen, of ze in 1 op 1 sessies 
 Je leert oefeningen aan om bewuster in het leven te staan, en beter op te merken welke automatische processen er spelen op mentaal/emotioneel niveau. Hierdoor krijg je meer inzicht in jezelf. De oefeningen zijn deels praktisch, deels meditatie. Hoe meer je de oefeningen doet, hoe meer je inwendige rust kan ervaren. Je wordt volledig begeleid in dit proces. 
 
 **Coaching**   
-We onderzoeken en bespreken samen de thematiek die je aanbrengt. Ook hier kan het eender wat zijn, lichamelijk ongemak, emotioneel, sociaal, spiritueel,… Door samen naar iets te kijken, en met de verschillende invalshoeken vanuit mijn brede levenservaring, kan je tot inzicht komen om een problematiek aan te pakken of op te lossen. 
+We onderzoeken en bespreken samen de thematiek die je aanbrengt.    
+Ook hier kan het eender wat zijn, lichamelijk ongemak, emotioneel, sociaal, spiritueel,… Door samen naar iets te kijken, en met de verschillende invalshoeken vanuit mijn brede levenservaring, kan je tot inzicht komen om een problematiek aan te pakken of op te lossen. 
