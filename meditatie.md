@@ -5,9 +5,9 @@ menu: meditatie
 # Meditatie
 
 
-Er wordt mogelijkheid geboden in kleine groepjes te leren mediteren. 
-Mensen die graag kennis maken met wat mediteren precies is, en willen oefenen onder begeleiding, zijn van harte welkom.
-We hebben een Start2Meditate programma!
+Er wordt mogelijkheid geboden in kleine groepjes te mediteren. 
+Mensen die graag kennis maken met wat mediteren precies is, of willen oefenen onder begeleiding, zijn van harte welkom.
+
 
 
 **Waarom?**
@@ -28,16 +28,13 @@ Meditatie is daarvoor één van de meest geschikte manieren, maar hoe doe je dat
 **Wat houdt het in?**
   
 
-Voor wie nog helemaal geen ervaring heeft met mediteren, is er de "Kom tot rust" serie in 3 delen. 
-Voor meer uitleg daarover, zie ook [**cursussen**](http://www.manopura.be/cursussen.html)
+Maandelijks komen we samen in groep om te oefenen, life in de praktijkruimte van Manopura.
+Er is altijd eerst een kennismakingsrondje om af te toetsen met welke vragen of verwachtingen je precies komt. 
+Daar wordt dan op ingepikt, en eventueel wat (theoretische) uitleg gegeven.
+De meditatie zelf wordt opgenomen en je dan nadien doorgemaild, zodat je thuis verder hiermee aan de slag kan. 
+Nadien is er altijd een nabespreking over de ervaringen. 
 
-  * 1 uurtje in de week oefenen, life in de praktijkruimte van Manopura of online
-  * een inleiding met duiding en uitleg telkens over een ander facet van wat onrust creëert en hoe je ermee om kan gaan
-  * de meditatie zelf die begeleid wordt, stap voor stap
-  * nabespreking van de ervaringen
-   
-
-Elke les kost 15€. Je kan ook een 10 beurten kaart kopen, die blijft een half jaar geldig.
+Elke sessie wordt een vrije bijdrage gevraagd. 
 
 **Registreren noodzakelijk**: stuur ons een [mailtje](mailto:marian@manopura.be)   
 Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagina onder Contact!
@@ -49,15 +46,6 @@ Voor recente info en data: schrijf je in op onze nieuwsbrief, op de laatste pagi
 **Enkele reacties van deelnemers**
 
 * Ik kan wel zeggen dat ik je manier van werken heel goed vind. De dingen worden heel goed uitgelegd en je hebt de gepaste stem en de juiste woorden om de relaxatie heel goed te begeleiden. Mijn innerlijke criticus (lastpost) is al veel vriendelijker geworden voor mij. Ik had nooit gedacht dat ik zo een evolutie zou kunnen doormaken. Je manier van werken is echt wel heel waardevol en ik wil zeker voort komen na dit corona-gedoe. Heel goed ook dat je de sessies opneemt en digitaal ter beschikking stelt. Zo kan je rustgevende stem ook thuis voor de gepaste begeleiding zorgen. 
-
-* Ik heb de 10-delige meditatiereeks ‘hoofd’ gevolgd.
-Ik was aangenaam verrast door de aanpak van Marian.
-Zij brengt het op een rustige maar gestructureerde manier.
-Eerst is er een rondvraag over de ervaringen van de voorbije week.
-Dan is er een stuk lichaamsgewaarwording en dan pas de eigenlijke meditatie gevolgd door een afsluitend moment met thee.
-Die meditaties zijn dan ook elke week verschillend wat maakt dat je toch een mooi beeld krijgt wat mogelijk is en wat voor jezelf het beste werkt. Mij heeft het in elk geval veel meer inzicht gegeven wat kan en niet en daardoor ben ik een stuk rustiger geworden in moeilijke situaties. Het besef van de manier hoe de geest juist werkt is een openbaring gebleken.
-Het gevolg is dan ook dat je snel door hebt wanneer de gedachten de vrije loop gaan en je dus kan ingrijpen.
-Ik vond het geweldig om alvast 1 keer per week een vast moment te hebben en dus tenvolle te kunnen genieten van dit aanbod. Een aanrader om de reeksen te volgen !
 
 * Ik merkte dat ik in het begin keihard mijn best zat te doen: rechte rug, zo recht mogelijk, ademhaling zo diep en lang mogelijk; maar na enkele sessies begreep ik dat ik 'het goed moeten doen' of het 'te goed willen doen' ook kon loslaten. Dat is trouwens een inzicht dat ik meedraag in mijn dagelijkse werk nu.   
 * Ik neem al ruime tijd geen medicatie meer tegen mijn woede aanvallen of depressie, mediteren is mijn "pil" nu 💪. Soms heb ik nog eens een korte terugval, dat voelt niet lekker aan maar het is nu anders, ik herpak me vlugger tegen dat ik vroeger voor dagen in de put zat en liep te piekeren. Dus ja, de flow zit goed en ik blijf er verder aan werken. Ik heb zelfs deze week voor het eerst in mijn leven kunnen zeggen dat ik op mijn eigen fier en trots was! 💖 Ik ben blij en dankbaar dat ik de weg naar Manopura gevonden heb!
