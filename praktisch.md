@@ -53,15 +53,13 @@ Prijs cursussen: zie [**cursussen**](http://www.manopura.be/cursussen.html)
 
 ### Agenda
 
-**Mindfulness 8-weekse opleiding in de Polikliniek Rode Heuvel**: nieuwe reeks vanaf donderdag 12 januari 2023 19u00-21u30. Voor de 8 lessen van 2,5 uur: 320€. Geen voorkennis vereist. Vooraf inschrijven noodzakelijk. Volgende reeksen starten in april na de Paasvakantie tot juni (20/4/23 - 15/6/23) en 21 september 2023 tot 16 november 2023. Elk jaar zijn er dus 3 series, telkens start in januari, april en september.
+**Mindfulness 8-weekse opleiding in de Polikliniek Rode Heuvel**: nieuwe reeks vanaf donderdag 28 september 2023 19u00-21u30. Voor de 8 lessen van 2,5 uur: 320€. Geen voorkennis vereist. Vooraf inschrijven noodzakelijk. Elk jaar zijn er 3 series, telkens start in januari, april en september. Zo kan je kiezen welk moment van het jaar je het beste past.
 
-**Reiki 1 opleiding en inwijding**: zaterdag 19 mei 2023 10-18u in de praktijk van Manopura. Voor de hele dag, cursusmateriaal en lunch: 165€   
+**Reiki 1 opleiding en inwijding**: zaterdag 28 oktober 2023 10-18u in de praktijk van Manopura. Voor de hele dag, cursusmateriaal en lunch: 165€   
 
-**Reiki2 opleiding en inwijding**: zaterdag 1 juli 2023 10u - 18u in de praktijk van Manopura. Voor de hele dag, cursusmateriaal en lunch: 165€    
+**Reiki2 opleiding en inwijding**: zaterdag 11 november 2023 10u - 18u in de praktijk van Manopura. Voor de hele dag, cursusmateriaal en lunch: 165€    
    
-**Mindful Yoga volgens de 5 elementen**: elke donderdagavond 17u30 - 18u45 (behalve tijdens schoolvakanties), in de polyvalente zaal van Polikliniek Rode Heuvel. Per les 15€. Geen voorkennis vereist. Vooraf inschrijven wenselijk.    
-
-**Kom tot rust meditatie groepsessie**: maandelijks 1 keer samenkomen om te (leren) mediteren of thema's die onrust veroorzaken te bespreken. Elke eerste dinsdagavond van de maand, telkens om 19u30 in de praktijkruimte van Manopura. Gratis of vrije bijdrage.      
+**Mindful Yoga volgens de 5 elementen**: elke donderdagavond 17u30 - 18u45 (behalve tijdens schoolvakanties), in de polyvalente zaal van Polikliniek Rode Heuvel. Per les 15€. Geen voorkennis vereist. Vooraf inschrijven wenselijk. Start donderdag 21 september 2023.    
 
 
 ---
