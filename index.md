@@ -83,7 +83,7 @@ Voor elke CEO, preventie-adviseur, HR-verantwoordelijke:
 ---  
 
 
-Volg ons op [**LinkedIn**](https://www.linkedin.com/in/manopura-shiatsu-stress-coaching-mindfulness-01b965172), en op het [**Complementaire gezondheidszorg**](https://t.me/complementaire_gezondheidszorg) channel van Telegram  voor het laatste nieuws!    
+Volg ons op [**LinkedIn**](https://www.linkedin.com/in/manopura-shiatsu-stress-coaching-mindfulness-01b965172), op het [**Complementaire gezondheidszorg**](https://t.me/complementaire_gezondheidszorg) channel van Telegram  en schrijf je in voor onze nieuwsbrief voor het laatste nieuws! Ga voor de nieuwsbrief naar de Contact pagina.    
 
 
 ---
