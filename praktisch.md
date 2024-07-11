@@ -9,28 +9,28 @@ menu: praktisch
  
 Stress coaching & Shiatsu behandeling    
 (eerste keer is met intake gesprek)   
-60 min - 65 euro  
-75 min - 80 euro   
-90 min - 95 euro 
+60 min - 70 euro  
+75 min - 85 euro   
+90 min - 100 euro 
 
 Shiatsu stoel nek-, schouders-, rugmassage:   
-30 min - 45 euro
+30 min - 50 euro
 
 Shiatsu ontspanningsmassage (zonder analyse, zonder intake)   
-45 min - 55 euro   
+45 min - 60 euro   
 
 Voetreflexologie:   
-45 min - 55 euro  
-60 min - 70 euro  
-75 min - 85 euro
+45 min - 60 euro  
+60 min - 75 euro  
+75 min - 90 euro
 
 Reiki behandeling:   
-60 min - 65 euro  
-90 min - 95 euro
+60 min - 70 euro  
+90 min - 100 euro
 
 PsychoDynamica:   
-60 min - 65 euro  
-90 min - 95 euro   
+60 min - 70 euro  
+90 min - 100 euro   
 
 Yoga privé-les:   
 30 min - 35 euro     
@@ -43,7 +43,7 @@ Voor de 8weekse opleiding (20 lesuren): 320 euro
 
 **5 elementen Yoga/ Mindful Yoga**   
 75 min - 15 euro per persoon   
-Gelieve uw aanwezigheid te bevestigen via marian@manopura.be    
+Gelieve uw aanwezigheid te bevestigen via marian@manopura.be of via de link die je bij inschrijving werd toegestuurd.   
 Deze groepsles gaat door in de polyvalente ruimte van Polikliniek Rode Heuvel.   
 
 
