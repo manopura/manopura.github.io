@@ -39,7 +39,7 @@ Yoga privé-les:
 
 **Groepslessen**:   
 **Mindfulness**    
-Voor de 8weekse opleiding (20 lesuren): 320 euro   
+Voor de 8weekse opleiding (20 lesuren): 300 euro voor volwassenen; 150 euro voor voltijdse studenten en voor wie de cursus wenst te herhalen.    
 
 **5 elementen Yoga/ Mindful Yoga**   
 75 min - 15 euro per persoon   
